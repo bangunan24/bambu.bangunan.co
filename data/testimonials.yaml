@@ -1,0 +1,58 @@
+testimonials:
+  - avatar: /images/admin/avatar1.png
+    name: Eko
+    message: >-
+      Saya membeli bambu tali dari bambu.bangunan.co dan hasilnya luar biasa.
+      Sangat pas untuk kebutuhan pembangunan saya dan harga yang diberikan
+      sangat menarik.
+    response: >-
+      Terima kasih atas ulasannya! Kami senang bambu tali kami sesuai dengan
+      kebutuhan proyek Anda.
+    rating: 4
+  - avatar: /images/admin/avatar2.png
+    name: Siti
+    message: >-
+      Bambu steger yang saya beli di bambu.bangunan.co sangat kuat dan awet.
+      Proses pengantaran juga efisien dan sesuai harapan. Saya benar-benar puas
+      dengan pembelian ini.
+    response: >-
+      Terima kasih! Kami senang dapat menyediakan bambu steger berkualitas yang
+      mendukung proyek Anda.
+    rating: 5
+  - avatar: /images/admin/avatar3.png
+    name: Deni
+    message: >-
+      Bambu hitam dari bambu.bangunan.co berkualitas tinggi dan warna hitamnya
+      sangat bagus. Pas untuk desain lanskap saya.
+    response: >-
+      Terima kasih! Kami berkomitmen untuk menyediakan bambu hitam berkualitas
+      tinggi untuk memenuhi kebutuhan desain Anda.
+    rating: 4
+  - avatar: /images/admin/avatar4.png
+    name: Yudi
+    message: >-
+      Saya sangat puas dengan bambu hias yang saya beli. Produk ini menambah
+      keindahan taman saya dan berkelas. Sangat saya rekomendasikan!
+    response: >-
+      Senang mendengar bahwa bambu hias kami menambah keindahan taman Anda.
+      Terima kasih atas dukungannya!
+    rating: 4
+  - avatar: /images/admin/avatar5.png
+    name: Lina
+    message: >-
+      Pelayanan di bambu.bangunan.co sangat baik dan sangat membantu. Bambu tali
+      yang saya beli ideal untuk proyek kerajinan saya.
+    response: >-
+      Terima kasih! Kami senang bambu tali kami cocok untuk proyek kerajinan
+      Anda.
+    rating: 4
+  - avatar: /images/admin/avatar6.png
+    name: Toni
+    message: >-
+      Produk bambu hias dari bambu.bangunan.co sangat berkualitas dan
+      menciptakan suasana yang eksotis pada ruang interior saya. Saya sangat
+      puas dengan produk ini.
+    response: >-
+      Kami senang mendengar bahwa bambu hias kami memperindah ruang interior
+      Anda. Terima kasih atas ulasannya!
+    rating: 5
