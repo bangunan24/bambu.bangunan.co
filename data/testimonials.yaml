@@ -1,56 +1,58 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Wawan
+    name: Dedi
     message: >-
-      Saya membeli bambu tali dari bambu.bangunan.co dan hasilnya luar biasa.
-      Sangat pas untuk kebutuhan konstruksi saya dan harganya sangat bersaing.
+      Saya membeli bambu tali dari bambu.bangunan.co dan kualitasnya sangat
+      memuaskan. Ideal untuk kebutuhan pembangunan saya dan harga yang diberikan
+      sangat menarik.
     response: >-
-      Terima kasih atas ulasannya! Kami senang bambu tali kami memenuhi
-      kebutuhan proyek Anda.
+      Terima kasih, atas kepercayaannya. Kami senang produk bambu tali kami
+      dapat memfasilitasi proyek Anda.
     rating: 4
   - avatar: /images/admin/avatar2.png
-    name: Ayu
+    name: Rina
     message: >-
-      Bambu steger yang saya beli dari toko ini luar biasa kokoh dan tahan lama.
-      Layanan pengiriman juga efisien dan sesuai harapan. Sangat puas dengan
+      Bambu steger yang saya beli dari toko ini sangat kuat dan tahan lama.
+      Proses pengantaran juga tepat waktu dan efisien. Saya sangat senang dengan
       pembelian ini.
     response: >-
-      Terima kasih! Kami senang dapat menyediakan bambu steger berkualitas yang
-      mendukung proyek Anda.
+      Kami sangat menghargai kepercayaan Anda. Senang mendengar bahwa bambu
+      steger kami sesuai dengan harapan Anda.
     rating: 5
   - avatar: /images/admin/avatar3.png
-    name: Bayu
+    name: Faisal
     message: >-
       Bambu hitam dari bambu.bangunan.co memiliki kualitas yang sangat baik dan
-      warna yang konsisten. Pas untuk desain lanskap saya.
+      warna hitamnya sangat bagus. Cocok untuk taman saya.
     response: >-
-      Terima kasih! Kami berkomitmen untuk menyediakan bambu hitam terbaik untuk
-      memenuhi kebutuhan desain Anda.
+      Terima kasih! Kami berkomitmen untuk menyediakan bambu hitam berkualitas
+      tinggi untuk memenuhi kebutuhan desain Anda.
     rating: 4
   - avatar: /images/admin/avatar4.png
-    name: Agus
+    name: Rudi
     message: >-
-      Saya benar-benar puas dengan bambu hias yang saya beli. Produk ini
-      menambah keindahan taman saya dan berkelas. Sangat saya rekomendasikan!
-    response: Terima kasih! Kami senang produk kami dapat menyempurnakan taman Anda.
+      Saya sangat puas dengan bambu hias yang saya beli. Produk ini membuat
+      tampilan taman semakin eksotis dan unik. Sangat rekomended!
+    response: >-
+      Senang mendengar bahwa bambu hias kami membuat taman Anda lebih indah.
+      Terima kasih atas dukungannya!
     rating: 4
   - avatar: /images/admin/avatar5.png
-    name: Dewi
+    name: Fitri
     message: >-
-      Layanan yang saya terima dari bambu.bangunan.co sangat baik dan
-      informatif. Bambu tali yang saya beli sangat sesuai untuk pekerjaan
-      kerajinan saya.
+      Layanan yang saya terima dari bambu.bangunan.co luar biasa dan sangat
+      membantu. Bambu tali yang saya beli sangat sesuai untuk proyek kerajinan
+      saya.
     response: >-
-      Terima kasih, atas kepercayaannya. Kami senang produk kami dapat mendukung
-      proyek kerajinan Anda.
+      Terima kasih! Kami senang bambu tali kami cocok untuk proyek kerajinan
+      Anda.
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Rio
+    name: Toni
     message: >-
-      Produk bambu hias dari bambu.bangunan.co memiliki kualitas yang sangat
-      baik dan menciptakan suasana yang eksotis pada ruang interior saya. Saya
-      sangat puas dengan produk ini.
+      Bambu hias yang saya beli sangat berkualitas dan menciptakan suasana yang
+      eksotis pada desain interior saya. Saya sangat puas dengan produk ini.
     response: >-
-      Terima kasih! Kami senang produk kami dapat memenuhi harapan kebutuhan
+      Terima kasih! Kami senang produk kami dapat sesuai ekspektasi kebutuhan
       desain interior Anda.
     rating: 5
