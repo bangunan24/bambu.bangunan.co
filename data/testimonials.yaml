@@ -1,58 +1,55 @@
 testimonials:
   - avatar: /images/admin/avatar1.png
-    name: Budi
+    name: Agus
     message: >-
-      Saya memesan bambu tali dari bambu.bangunan.co dan kualitasnya sangat
-      memuaskan. Ideal untuk kebutuhan pembangunan saya dan harga yang
-      ditawarkan cukup kompetitif.
+      Saya menggunakan bambu tali dari bambu.bangunan.co dan hasilnya luar
+      biasa. Sangat pas untuk kebutuhan pembangunan saya dan harganya sangat
+      bersaing.
     response: >-
-      Terima kasih, atas kepercayaannya. Kami senang produk bambu tali kami
-      dapat menyempurnakan proyek Anda.
+      Terima kasih atas ulasannya! Kami senang bambu tali kami sesuai dengan
+      kebutuhan proyek Anda.
     rating: 4
   - avatar: /images/admin/avatar2.png
-    name: Ayu
-    message: >-
-      Bambu steger yang saya beli dari toko ini sangat kuat dan sangat durable.
-      Proses pengantaran juga tepat waktu dan tanpa kendala. Saya benar-benar
-      puas dengan pembelian ini.
-    response: >-
-      Terima kasih! Kami senang dapat menyediakan bambu steger berkualitas yang
-      mendukung proyek Anda.
-    rating: 5
-  - avatar: /images/admin/avatar3.png
-    name: Bambang
-    message: >-
-      Bambu hitam dari bambu.bangunan.co berkualitas tinggi dan warna hitamnya
-      sangat bagus. Ideal untuk taman saya.
-    response: >-
-      Terima kasih! Kami senang bambu hitam kami dapat mendukung proyek desain
-      lanskap Anda.
-    rating: 4
-  - avatar: /images/admin/avatar4.png
-    name: Gilang
-    message: >-
-      Saya sangat puas dengan bambu hias yang saya beli. Produk ini membuat
-      taman saya lebih indah dan eksotis. Sangat saya rekomendasikan!
-    response: >-
-      Senang mendengar bahwa bambu hias kami menambah keindahan taman Anda.
-      Terima kasih atas dukungannya!
-    rating: 4
-  - avatar: /images/admin/avatar5.png
     name: Sari
     message: >-
-      Layanan yang saya terima dari bambu.bangunan.co luar biasa dan memberikan
-      banyak informasi. Bambu tali yang saya beli pas sekali untuk pekerjaan
-      kerajinan saya.
+      Bambu steger yang saya beli di sini benar-benar kokoh dan awet. Layanan
+      pengiriman juga tepat waktu dan sesuai harapan. Saya benar-benar puas
+      dengan pembelian ini.
     response: >-
-      Terima kasih, atas kepercayaannya. Kami senang produk kami dapat mendukung
-      proyek kerajinan Anda.
+      Kami sangat menghargai kepercayaan Anda. Senang mendengar bahwa bambu
+      steger kami tepat dengan kebutuhan Anda.
+    rating: 5
+  - avatar: /images/admin/avatar3.png
+    name: Toni
+    message: >-
+      Bambu hitam dari bambu.bangunan.co berkualitas tinggi dan warnanya
+      seragam. Cocok untuk taman saya.
+    response: >-
+      Terima kasih! Kami berkomitmen untuk menyediakan bambu hitam berkualitas
+      tinggi untuk memenuhi kebutuhan desain Anda.
+    rating: 4
+  - avatar: /images/admin/avatar4.png
+    name: Agus
+    message: >-
+      Saya senang sekali dengan bambu hias yang saya beli. Bambu ini membuat
+      taman saya lebih indah dan eksotis. Benar-benar layak direkomendasikan!
+    response: Terima kasih! Kami senang produk kami dapat menambah keindahan taman Anda.
+    rating: 4
+  - avatar: /images/admin/avatar5.png
+    name: Diah
+    message: >-
+      Pelayanan di bambu.bangunan.co memuaskan dan informatif. Bambu tali yang
+      saya beli sangat sesuai untuk pekerjaan kerajinan saya.
+    response: >-
+      Terima kasih! Kami senang bambu tali kami tepat untuk proyek kerajinan
+      Anda.
     rating: 4
   - avatar: /images/admin/avatar6.png
-    name: Wawan
+    name: Galih
     message: >-
-      Bambu hias yang saya beli berkualitas tinggi dan membuat ruang interior
-      saya lebih indah pada desain interior saya. Benar-benar puas dengan
-      pembelian ini.
+      Produk bambu hias dari bambu.bangunan.co memiliki kualitas yang sangat
+      baik dan membuat ruang interior saya lebih indah pada desain interior
+      saya. Benar-benar puas dengan pembelian ini.
     response: >-
       Terima kasih! Kami senang produk kami dapat sesuai ekspektasi kebutuhan
       desain interior Anda.
