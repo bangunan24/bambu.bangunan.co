@@ -1,6 +1,6 @@
 ---
 title: 'Jual Bambu Steger di Pamoyanan Bogor [Terdekat]'
-date: '2025-05-01'
+date: '2026-05-01'
 categories:
   - harga
 description: >-
