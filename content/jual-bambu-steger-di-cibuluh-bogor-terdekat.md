@@ -1,6 +1,6 @@
 ---
 title: 'Jual Bambu Steger di Cibuluh Bogor [Terdekat]'
-date: '2025-06-01'
+date: '2026-06-01'
 categories:
   - harga
 description: >-

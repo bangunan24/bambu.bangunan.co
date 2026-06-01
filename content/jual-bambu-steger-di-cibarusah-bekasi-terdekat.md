@@ -1,6 +1,6 @@
 ---
 title: 'Jual Bambu Steger di Cibarusah Bekasi [Terdekat]'
-date: '2025-06-01'
+date: '2026-06-01'
 categories:
   - harga
 description: >-
