@@ -1,6 +1,6 @@
 ---
 title: 'Jual Bambu Steger di Balumbang Jaya Bogor [Terdekat]'
-date: '2025-07-01'
+date: '2026-07-01'
 categories:
   - harga
 description: >-
