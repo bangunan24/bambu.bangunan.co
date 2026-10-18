@@ -1,4 +1,4 @@
-baseURL = "https://bambu.bangunan.co/"
+baseURL = "https://bambu-bangunan-co.pages.dev/"
 languageCode = "id"
 title = "Jual Bambu Tali | Jual Bambu Tali, Bambu Steger, Bambu Hitam, Bambu Hias"
 theme = "saeseen-hugo"
@@ -177,10 +177,20 @@ paginate = 6
    title = "Jual Bambu Tali, Bambu Steger, Bambu Hitam, Bambu Hias | "
    highlight = "Bangunan.co"
 
+# Sitemap <lastmod> and the "Diperbarui" label come from the `lastmod:` front-matter field that
+# tools/recycle-posts.js, revise-articles.js and fix-orphans.js bump (the real publish `date:`
+# stays untouched).
+[frontmatter]
+  lastmod = ["lastmod", "date", "publishDate"]
+
 [markup]
   [markup.tableOfContents]
     startLevel = 1
     endLevel = 3
+  # Required by tools/lib/safe-table.js: AI-generated tables are rendered as raw HTML
+  # (<table class="table">). Without this Hugo replaces raw HTML with "<!-- raw HTML omitted -->".
+  [markup.goldmark.renderer]
+    unsafe = true
 
 [related]
   threshold = 80
