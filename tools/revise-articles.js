@@ -85,7 +85,14 @@ const CONFIG = {
   HOST        : 'api.cloudflare.com',
   MODEL       : '@cf/aisingapore/gemma-sea-lion-v4-27b-it',
   TIMEOUT_MS  : 60000,
-  MAX_RETRIES_PER_ARTICLE: 2,
+  // Failed RUNS allowed per article before it is parked (each run already makes up to
+  // MAX_ATTEMPTS_PER_RUN AI attempts, the 2nd one with feedback about what was wrong).
+  MAX_RETRIES_PER_ARTICLE: 3,
+  MAX_ATTEMPTS_PER_RUN: 2,
+  // The AI tends to condense these rambling location articles (observed 62-74% of the original
+  // length in production). Below this ratio the revision is rejected; override with
+  // REVISE_MIN_LENGTH_RATIO if needed.
+  MIN_LENGTH_RATIO: parseFloat(process.env.REVISE_MIN_LENGTH_RATIO) || 0.6,
   BRAND       : 'bangunan.co',
 };
 
@@ -378,8 +385,13 @@ function validateFinalContent(original, revisedContent, location) {
     issues.push(`Location name "${location}" not found in revised output`);
   }
   // The revision is a LIGHT, targeted edit — a big drop in length means the AI over-rewrote/summarized.
-  if (revisedContent.length < original.length * 0.8) {
-    issues.push(`Revised content too short (${revisedContent.length} vs original ${original.length} characters)`);
+  if (revisedContent.length < original.length * CONFIG.MIN_LENGTH_RATIO) {
+    issues.push(`Revised content too short (${revisedContent.length} vs original ${original.length} characters, minimum ${Math.ceil(original.length * CONFIG.MIN_LENGTH_RATIO)})`);
+  }
+  // Same sections as the original: dropping a section is the real damage a short answer causes.
+  const countHeadings = t => (t.match(/^#{1,6}\s/gm) || []).length;
+  if (countHeadings(revisedContent) !== countHeadings(original)) {
+    issues.push(`Heading count changed (${countHeadings(revisedContent)} vs original ${countHeadings(original)})`);
   }
   // ...and a big increase means the AI padded the article with filler.
   if (revisedContent.length > original.length * 1.6) {
@@ -508,47 +520,69 @@ async function main() {
     log(`   🔗 ${relatedCandidates.length} related article candidate(s) found for internal linking.`);
 
     try {
-      const messages = buildPrompt(title, location || '(not detected)', category, protectedContent, formatCandidatesForPrompt(relatedCandidates));
-      let revisedProtected = await callAI(messages); // always call AI, including dry-run, to preview
-      revisedProtected = cleanupAIChatter(revisedProtected);
+      const baseMessages = buildPrompt(title, location || '(not detected)', category, protectedContent, formatCandidatesForPrompt(relatedCandidates));
 
-      const placeholderIssues = validatePlaceholders(revisedProtected, placeholders);
-      if (placeholderIssues.length > 0) {
-        log(`   ❌ Rejected (broken placeholders): ${placeholderIssues.join('; ')}`);
-        progress.failed[url] = (progress.failed[url] || 0) + 1;
-        failedThisSession++;
-        logLines.push(`FAILED,${url},"${placeholderIssues.join(' | ')}"`);
-        continue;
+      // One full check of an AI answer. Returns { issues, kind, content } — content is only
+      // meaningful when issues is empty.
+      const checkRevision = (raw) => {
+        let revisedProtected = cleanupAIChatter(raw);
+
+        const placeholderIssues = validatePlaceholders(revisedProtected, placeholders);
+        if (placeholderIssues.length > 0) return { issues: placeholderIssues, kind: 'broken placeholders' };
+
+        // Turn any [[TABEL_MULAI]]...[[TABEL_SELESAI]] block into a guaranteed-valid HTML table
+        // (lib/safe-table.js), then keep only internal links pointing at an offered candidate
+        // URL, capped at 2 (lib/related-articles.js). This runs while the protected lines
+        // (Lainnya / Ref by / images / shortcodes) are still placeholders, so they are never
+        // touched by the link filter.
+        revisedProtected = stripTrailingMarker(renderSafeTables(revisedProtected));
+        if (hasLeftoverTableMarkers(revisedProtected)) {
+          log('   ⚠️  Leftover [[TABEL_...]] marker found after table rendering — check article manually.');
+        }
+        revisedProtected = enforceInternalLinks(revisedProtected, relatedCandidates.map(c => c.url), 2);
+
+        const addressingIssues = validateAddressing(revisedProtected);
+        if (addressingIssues.length > 0) return { issues: addressingIssues, kind: 'addressing rule' };
+
+        const content = restoreStructure(revisedProtected, placeholders);
+        const issues = validateFinalContent(parsed.content, content, location);
+        if (issues.length > 0) return { issues, kind: 'validation failed' };
+
+        return { issues: [], content };
+      };
+
+      // Attempt 1 is the normal prompt. If it is rejected, attempt 2 shows the AI its own answer
+      // plus the exact reasons, so it can fix the specific problem instead of failing the article.
+      let messages = baseMessages;
+      let revisedContent = null;
+      let lastResult = null;
+      for (let attempt = 1; attempt <= CONFIG.MAX_ATTEMPTS_PER_RUN; attempt++) {
+        const raw = await callAI(messages); // always call AI, including dry-run, to preview
+        lastResult = checkRevision(raw);
+        if (lastResult.issues.length === 0) { revisedContent = lastResult.content; break; }
+
+        log(`   ↩️  Attempt ${attempt}/${CONFIG.MAX_ATTEMPTS_PER_RUN} rejected (${lastResult.kind}): ${lastResult.issues.join('; ')}`);
+        if (attempt < CONFIG.MAX_ATTEMPTS_PER_RUN) {
+          const minChars = Math.ceil(parsed.content.length * CONFIG.MIN_LENGTH_RATIO);
+          messages = [
+            ...baseMessages,
+            { role: 'assistant', content: raw },
+            { role: 'user', content:
+              `Hasil revisi di atas DITOLAK oleh pemeriksa otomatis karena:\n- ${lastResult.issues.join('\n- ')}\n\n` +
+              `Tulis ulang SELURUH artikel dari awal dengan memperbaiki hal tersebut, dan tetap patuhi semua instruksi. Pengingat penting:\n` +
+              `- Panjang minimal ${minChars} karakter (artikel asli ${parsed.content.length}). JANGAN meringkas atau menghapus kalimat: ubah susunan kata di setiap paragraf, tetapi pertahankan isinya, semua section, dan jumlah heading.\n` +
+              `- Setiap token [[[PLACEHOLDER_N]]] harus muncul tepat satu kali, termasuk yang terakhir.\n` +
+              `- "Mitra Bangunan" wajib ada di paragraf pertama DAN di paragraf teks penutup (paragraf terakhir sebelum token terakhir); JANGAN dipakai di heading atau paragraf lain, di sana gunakan "Anda".\n` +
+              `Keluarkan HANYA isi artikel dalam Markdown.` },
+          ];
+        }
       }
 
-      // Turn any [[TABEL_MULAI]]...[[TABEL_SELESAI]] block into a guaranteed-valid HTML table
-      // (lib/safe-table.js), then keep only internal links pointing at an offered candidate
-      // URL, capped at 2 (lib/related-articles.js). This runs while the protected lines
-      // (Lainnya / Ref by / images / shortcodes) are still placeholders, so they are never
-      // touched by the link filter.
-      revisedProtected = stripTrailingMarker(renderSafeTables(revisedProtected));
-      if (hasLeftoverTableMarkers(revisedProtected)) {
-        log('   ⚠️  Leftover [[TABEL_...]] marker found after table rendering — check article manually.');
-      }
-      revisedProtected = enforceInternalLinks(revisedProtected, relatedCandidates.map(c => c.url), 2);
-
-      const addressingIssues = validateAddressing(revisedProtected);
-      if (addressingIssues.length > 0) {
-        log(`   ❌ Rejected (addressing rule): ${addressingIssues.join('; ')}`);
+      if (!revisedContent) {
+        log(`   ❌ Rejected after ${CONFIG.MAX_ATTEMPTS_PER_RUN} attempt(s) (${lastResult.kind}): ${lastResult.issues.join('; ')}`);
         progress.failed[url] = (progress.failed[url] || 0) + 1;
         failedThisSession++;
-        logLines.push(`FAILED,${url},"${addressingIssues.join(' | ').replace(/"/g, "'")}"`);
-        continue;
-      }
-
-      const revisedContent = restoreStructure(revisedProtected, placeholders);
-      const issues = validateFinalContent(parsed.content, revisedContent, location);
-
-      if (issues.length > 0) {
-        log(`   ❌ Rejected (validation failed): ${issues.join('; ')}`);
-        progress.failed[url] = (progress.failed[url] || 0) + 1;
-        failedThisSession++;
-        logLines.push(`FAILED,${url},"${issues.join(' | ')}"`);
+        logLines.push(`FAILED,${url},"${lastResult.kind}: ${lastResult.issues.join(' | ').replace(/"/g, "'")}"`);
         continue;
       }
 

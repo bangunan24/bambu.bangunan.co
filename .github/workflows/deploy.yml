@@ -32,6 +32,14 @@ jobs:
     runs-on: ubuntu-latest
 
     steps:
+      # Housekeeping: GitHub runners ship ~14 GB of toolchains this repo never uses. Removing them
+      # keeps `npm ci` + Hugo from hitting "No space left on device" on a large public/ folder.
+      - name: Free disk space
+        run: |
+          df -h / | tail -1
+          sudo rm -rf /usr/share/dotnet /usr/local/lib/android /opt/ghc /opt/hostedtoolcache/CodeQL || true
+          df -h / | tail -1
+
       - name: Checkout Repository
         uses: actions/checkout@v4
         with:
@@ -76,6 +84,12 @@ jobs:
         env:
           GITHUB_TOKEN: ${{ secrets.GITHUB_TOKEN }}
         run: |
+          # Housekeeping: node_modules must never be committed (the workflow runs `npm ci`). If an
+          # older commit still tracks it, drop it from the index (files stay on the runner's disk).
+          if git ls-files --error-unmatch node_modules >/dev/null 2>&1; then
+            echo "🧹 node_modules is tracked in git — removing it from the index."
+            git rm -r -q --cached node_modules
+          fi
           git add public/ static/ .indexnow-key.json
           if git diff --staged --quiet; then
             echo "ℹ️  public/ unchanged — nothing to commit."

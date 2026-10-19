@@ -66,7 +66,10 @@ const CONFIG = {
   HOST        : 'api.cloudflare.com',
   MODEL       : '@cf/aisingapore/gemma-sea-lion-v4-27b-it',
   TIMEOUT_MS  : 60000,
-  MAX_RETRIES_PER_ORPHAN: 2,
+  MAX_RETRIES_PER_ORPHAN: 3,
+  // Attempts per donor article: a malformed or rejected answer gets ONE retry with the exact
+  // reason fed back to the model (CDI's log showed ~42% of answers dropped for format alone).
+  ATTEMPTS_PER_DONOR: 2,
 };
 
 CONFIG.CF_ACCOUNT_IDS.forEach((id, i) => {
@@ -237,15 +240,38 @@ async function main() {
             }) },
         ];
 
-        const rawAI = CONFIG.CF_API_TOKENS.length ? await callAI(messages) : null;
-        if (!rawAI) { lastReason = 'CLOUDFLARE_API_TOKEN tidak diset (dry-run tanpa AI)'; break; }
+        let parsedAI = null;
+        let noMatch = false;
+        let noAI = false;
+        for (let attempt = 1; attempt <= CONFIG.ATTEMPTS_PER_DONOR; attempt++) {
+          const rawAI = CONFIG.CF_API_TOKENS.length ? await callAI(messages) : null;
+          if (!rawAI) { noAI = true; break; }
 
-        const parsedAI = parseAIResponse(rawAI);
-        if (parsedAI.noMatch) { lastReason = `AI: tidak ada kalimat cocok di donor ini`; continue; }
-        if (parsedAI.parseError) { lastReason = `gagal parse respons AI: ${parsedAI.parseError}`; continue; }
+          const res = parseAIResponse(rawAI);
+          if (res.noMatch) { noMatch = true; break; }
 
-        const validationError = validateInsertion(parsed.body, orphan.url, parsedAI.original, parsedAI.updated);
-        if (validationError) { lastReason = `ditolak validasi: ${validationError}`; log(`     ❌ ${lastReason}`); continue; }
+          let problem = res.parseError || null;
+          if (!problem) {
+            problem = validateInsertion(parsed.body, orphan.url, res.original, res.updated);
+            if (problem) problem = `ditolak validasi: ${problem}`;
+          }
+          if (!problem) { parsedAI = res; break; }
+
+          lastReason = problem;
+          log(`     ❌ ${problem}${attempt < CONFIG.ATTEMPTS_PER_DONOR ? ' — mencoba ulang dengan umpan balik' : ''}`);
+          if (attempt < CONFIG.ATTEMPTS_PER_DONOR) {
+            messages.push({ role: 'assistant', content: rawAI });
+            messages.push({ role: 'user', content:
+              `Jawaban Anda DITOLAK: ${problem}.\n` +
+              `Ulangi dengan memperhatikan: (1) balas HANYA dua baris berlabel "KALIMAT_ASLI:" dan "KALIMAT_BARU:" tanpa tanda kutip, tanpa tebal, tanpa penjelasan; ` +
+              `(2) KALIMAT_ASLI disalin PERSIS dari artikel donor dan hanya muncul satu kali di sana; ` +
+              `(3) KALIMAT_BARU = kalimat yang sama persis dengan satu link [anchor](${orphan.url}) yang membungkus frasa yang sudah ada, tanpa mengubah kata lain. ` +
+              `Jika tidak ada kalimat yang cocok, jawab persis: TIDAK_ADA_YANG_COCOK` });
+          }
+        }
+        if (noAI) { lastReason = 'CLOUDFLARE_API_TOKEN tidak diset (dry-run tanpa AI)'; break; }
+        if (noMatch) { lastReason = `AI: tidak ada kalimat cocok di donor ini`; continue; }
+        if (!parsedAI) continue; // lastReason already set to the final rejection reason
 
         log(`     ✅ Kalimat ditemukan & tervalidasi.`);
         log(`        Asli : "${parsedAI.original.slice(0, 100)}${parsedAI.original.length > 100 ? '…' : ''}"`);
