@@ -130,7 +130,10 @@ async function waitForKeyLive(siteUrl, key, { timeoutMs = 8 * 60 * 1000, interva
       }
       lastNote = `HTTP ${res.status}${res.status === 200 ? ' but body != key' : ''}`;
     } catch (err) {
-      lastNote = err.message;
+      // Node's fetch hides the real reason in err.cause (ENOTFOUND = DNS, ECONNREFUSED, cert errors...)
+      const code = err.cause && (err.cause.code || err.cause.message);
+      lastNote = code ? `${err.message}: ${code}` : err.message;
+      if (code === 'ENOTFOUND') lastNote += ' — domain does not resolve; is bambu.bangunan.co attached to the Cloudflare Pages project?';
     }
     console.log(`   ⏳ Waiting for the deploy to go live (${lastNote}) — retry in ${intervalMs / 1000}s...`);
     await sleep(intervalMs);

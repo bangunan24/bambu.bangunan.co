@@ -32,14 +32,6 @@ jobs:
     runs-on: ubuntu-latest
 
     steps:
-      # Housekeeping: GitHub runners ship ~14 GB of toolchains this repo never uses. Removing them
-      # keeps `npm ci` + Hugo from hitting "No space left on device" on a large public/ folder.
-      - name: Free disk space
-        run: |
-          df -h / | tail -1
-          sudo rm -rf /usr/share/dotnet /usr/local/lib/android /opt/ghc /opt/hostedtoolcache/CodeQL || true
-          df -h / | tail -1
-
       - name: Checkout Repository
         uses: actions/checkout@v4
         with:

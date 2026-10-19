@@ -1,4 +1,4 @@
-baseURL = "https://bambu.bangunan.co/"
+baseURL = "https://bambu-bangunan-co.pages.dev/"
 languageCode = "id"
 title = "Jual Bambu Tali | Jual Bambu Tali, Bambu Steger, Bambu Hitam, Bambu Hias"
 theme = "saeseen-hugo"
@@ -168,10 +168,10 @@ paginate = 6
     url = "/"
   [[params.menu_items]]
     title = "Profile"
-    url = "https://bangunan.co/profile/"
+    url = "https://bangunan-co.pages.dev/profile/"
   [[params.menu_items]]
     title = "Daftar Harga"
-    url = "https://bangunan.co/daftar-harga/"
+    url = "https://bangunan-co.pages.dev/daftar-harga/"
 
 [params.header]
    title = "Jual Bambu Tali, Bambu Steger, Bambu Hitam, Bambu Hias | "
