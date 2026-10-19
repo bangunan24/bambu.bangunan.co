@@ -15,12 +15,12 @@
  *   5. enforceInternalLinks(...)        — SAFETY NET run on the AI's output: strips any internal
  *      link that ISN'T one of the offered candidate URLs and hard-caps the total to 2.
  *
- * bambu.bangunan.co layout note (differs from betoncorplus):
+ * this site layout note (differs from betoncorplus):
  *   - Articles are FLAT: content/<slug>.md  →  URL /<slug>/  (see [permalinks] in hugo.toml).
  *   - The "category" comes from the front matter (`categories: [harga]`), not from a folder.
  *   - A file WITHOUT `categories` (e.g. content/terms-of-service.md) is a site page, not an
  *     article, and is never indexed / linked / revised.
- *   - Existing articles link to each other with ABSOLUTE urls (https://bambu.bangunan.co/slug/)
+ *   - Existing articles link to each other with ABSOLUTE urls (https://<domain>/slug/)
  *     and Markdown-escaped brackets in the anchor (`\[Terdekat\]`). Both are understood here.
  *
  * Deliberately dependency-free (no gray-matter) so it works in every CI job.
@@ -30,7 +30,8 @@ const fs   = require('fs');
 const path = require('path');
 
 // Hosts that count as "this site" when a link is written as an absolute URL.
-const SITE_HOSTS = (process.env.SITE_HOSTS || 'bambu.bangunan.co').split(',').map(s => s.trim()).filter(Boolean);
+// Taken from baseURL in hugo.toml (see tools/lib/site-config.js); never hardcode the domain here.
+const SITE_HOSTS = require('./site-config.js').getSiteConfig().hosts;
 
 // Folders directly under content/ that are NOT thematic articles.
 const EXCLUDED_CATEGORY_FOLDERS = new Set(['home', 'page']);

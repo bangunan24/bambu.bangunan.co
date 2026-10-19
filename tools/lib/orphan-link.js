@@ -8,7 +8,7 @@
  * sentence with a link inserted, and the script applies it as an EXACT STRING SUBSTITUTION,
  * never a full rewrite.
  *
- * bambu.bangunan.co note: anchor text may contain Markdown-escaped characters (\[Terdekat\]),
+ * this site note: anchor text may contain Markdown-escaped characters (\[Terdekat\]),
  * so every link regex here accepts backslash-escapes inside the anchor.
  */
 

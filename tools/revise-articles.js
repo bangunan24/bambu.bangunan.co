@@ -93,7 +93,7 @@ const CONFIG = {
   // length in production). Below this ratio the revision is rejected; override with
   // REVISE_MIN_LENGTH_RATIO if needed.
   MIN_LENGTH_RATIO: parseFloat(process.env.REVISE_MIN_LENGTH_RATIO) || 0.6,
-  BRAND       : 'bangunan.co',
+  BRAND       : require('./lib/site-config.js').getSiteConfig().brand,  // [params] brand in hugo.toml
 };
 
 // Account IDs are 32-char hex — flag anything else immediately instead of a cryptic HTTP error later.
@@ -288,7 +288,7 @@ function protectStructure(content) {
     placeholders.push(match);
     return `[[[PLACEHOLDER_${idx}]]]`;
   });
-  // Site navigation / reference lines: "**Lainnya:** [..](https://bambu.bangunan.co/..)" keeps the
+  // Site navigation / reference lines: "**Lainnya:** [..](https://<domain>/..)" keeps the
   // internal link graph intact; "**Ref by:** [..](external)" is the outbound reference. Both are
   // kept byte-identical (otherwise the AI may drop them or enforceInternalLinks would strip them).
   protectedContent = protectedContent.replace(/^\*\*(?:Lainnya|Ref by):\*\*.*$/gm, (match) => {
@@ -319,7 +319,7 @@ function buildPrompt(title, location, category, protectedContent, relatedArticle
   return [
     {
       role: 'system',
-      content: renderTemplate(PROMPTS.revision.systemTemplate, { location }),
+      content: renderTemplate(PROMPTS.revision.systemTemplate, { location, siteHost: require('./lib/site-config.js').getSiteConfig().host }),
     },
     {
       role: 'user',
@@ -503,7 +503,7 @@ async function main() {
     const parsed = matter(raw);
     const title = parsed.data.title || candData.titles[url].title;
     const location = extractLocation(title);
-    // bambu.bangunan.co stores `categories` as a YAML list; a plain string is handled too.
+    // this site stores `categories` as a YAML list; a plain string is handled too.
     const category = Array.isArray(parsed.data.categories) ? parsed.data.categories.join(', ') : String(parsed.data.categories || '').replace(/^\[|\]$/g, '');
 
     log(`📝 [${processed}/${Math.min(LIMIT, todo.length)}] ${title}`);

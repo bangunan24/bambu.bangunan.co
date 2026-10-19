@@ -1,7 +1,7 @@
 /**
  * tools/lib/index-ping.js
  *
- * Working URL-notification for bambu.bangunan.co (hosted on Cloudflare Pages).
+ * Working URL-notification for this site (hosted on Cloudflare Pages).
  *
  * WHAT WAS WRONG BEFORE (old recycle-posts.js pingSearchEngines):
  *   - Google's and Bing's "ping?sitemap=" endpoints were retired (they return 404/410), the
@@ -20,7 +20,7 @@
  *     only for JobPosting / BroadcastEvent). Google's signal is an accurate sitemap.xml with a
  *     correct <lastmod>, which this repo produces (recycle / revise / fix-orphans bump `lastmod`
  *     in the front matter and Hugo writes it into the sitemap). Submit
- *     https://bambu.bangunan.co/sitemap.xml once in Google Search Console.
+ *     https://<domain>/sitemap.xml once in Google Search Console.
  *
  * HOW CHANGED URLS ARE DETECTED (workflow-agnostic):
  *   deploy.yml saves the previously committed public/sitemap.xml before building, builds, and
@@ -133,7 +133,7 @@ async function waitForKeyLive(siteUrl, key, { timeoutMs = 8 * 60 * 1000, interva
       // Node's fetch hides the real reason in err.cause (ENOTFOUND = DNS, ECONNREFUSED, cert errors...)
       const code = err.cause && (err.cause.code || err.cause.message);
       lastNote = code ? `${err.message}: ${code}` : err.message;
-      if (code === 'ENOTFOUND') lastNote += ' — domain does not resolve; is bambu.bangunan.co attached to the Cloudflare Pages project?';
+      if (code === 'ENOTFOUND') lastNote += ' — domain does not resolve; is the domain from baseURL attached to the Cloudflare Pages project?';
     }
     console.log(`   ⏳ Waiting for the deploy to go live (${lastNote}) — retry in ${intervalMs / 1000}s...`);
     await sleep(intervalMs);

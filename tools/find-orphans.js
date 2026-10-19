@@ -7,7 +7,7 @@
  *
  * HOW "ORPHAN" IS DETECTED:
  *   1. Every article's body is scanned for internal links ([text](/slug/) or the absolute
- *      form [text](https://bambu.bangunan.co/slug/), anchors may contain \[escaped\] brackets).
+ *      form [text](https://<domain>/slug/), anchors may contain \[escaped\] brackets).
  *   2. Every found link target is tallied as one inbound link for that URL.
  *   3. Any article whose URL is NEVER a target anywhere else has an inbound count of 0.
  *

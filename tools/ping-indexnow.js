@@ -22,7 +22,7 @@
 
 const fs   = require('fs');
 const path = require('path');
-const toml = require('toml');
+const { getSiteConfig } = require('./lib/site-config.js');
 const {
   ensureIndexNowKey, readSitemapFile, diffSitemaps, urlsSince, waitForKeyLive, submitToIndexNow,
 } = require('./lib/index-ping.js');
@@ -32,18 +32,8 @@ const ARGS = process.argv.slice(2);
 const arg = name => { const a = ARGS.find(x => x.startsWith(`--${name}=`)); return a ? a.slice(name.length + 3) : null; };
 const has = name => ARGS.includes(`--${name}`);
 
-function readBaseUrl() {
-  for (const f of ['hugo.toml', 'config.toml']) {
-    const p = path.join(ROOT, f);
-    if (fs.existsSync(p)) {
-      try { const c = toml.parse(fs.readFileSync(p, 'utf8')); if (c.baseURL) return c.baseURL; } catch { /* try next */ }
-    }
-  }
-  return 'https://bambu.bangunan.co/';
-}
-
 async function main() {
-  const siteUrl = arg('site') || process.env.SITE_URL || readBaseUrl();
+  const siteUrl = arg('site') || getSiteConfig().siteUrl;
   const newFile = path.resolve(ROOT, arg('new') || 'public/sitemap.xml');
   const dry = has('dry-run');
 

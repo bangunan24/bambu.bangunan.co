@@ -1,3 +1,5 @@
+# SINGLE place the domain is defined: baseURL below + [params] brand. Tools and theme read these.
+# Use __DOMAIN__ (host of baseURL) and __BRAND__ (params.brand) inside text values instead of typing the domain.
 baseURL = "https://bambu-bangunan-co.pages.dev/"
 languageCode = "id"
 title = "Jual Bambu Tali | Jual Bambu Tali, Bambu Steger, Bambu Hitam, Bambu Hias"
@@ -11,6 +13,9 @@ paginate = 6
   category = "/:slug/"
 
 [params]
+  brand = "bangunan.co"
+  # Parent-site price list page (used by the homepage button); change here if the parent domain changes.
+  price_list_url = "https://bangunan-co.pages.dev/daftar-harga/"
   # Site-wide settings
   meta_description = "Tempat Jual Bambu Tali Terdekat - Kami menyediakan bambu tali, bambu steger, bambu hitam, dan bambu hias dengan harga terbaik dan gratis ongkir"
   viewport = "width=device-width, initial-scale=1.0"
@@ -22,7 +27,7 @@ paginate = 6
   featured_image = "/images/admin/featured-image.png"
   author = "K. Yaman"
   telepon = "//+6285776786091"
-  whatsapp = "//api.whatsapp.com/send?phone=6285776786091&text=*Halo bangunan.co*%20%3A"
+  whatsapp = "//api.whatsapp.com/send?phone=6285776786091&text=*Halo __BRAND__*%20%3A"
   enableWhatApps = true
   enableTelepon = true
   tocMinWordCount = 300
@@ -67,13 +72,13 @@ paginate = 6
   footer_about_description = "Jangkauan Kami Luas, Bebas biaya pengirirman, Bebas biaya bongkar muat, Cara Pemesanan yang mudah, Sistem pembayaran COD 100% aman, Buka setiap hari, Gratis konsultasi dan Stok bambu yang melimpah"
   footer_services_title = "Kenapa Pilih Kami"
   footer_contact_title = "Kontak Kami"
-  footer_bottom_text = "@2024 bangunan.co. Semua Hak Dilindungi."
+  footer_bottom_text = "@2024 __BRAND__. Semua Hak Dilindungi."
 
   # Testimonials Section
   testimonials_title = "Apa Kata Klien Kami"
 
   [[params.footer_services]]
-  text = "Bambu.bangunan.co menyediakan berbagai jenis bambu berkualitas tinggi, termasuk Bambu Tali, Bambu Steger, Bambu Hitam, dan Bambu Hias. Kami menawarkan produk dengan harga terjangkau dan layanan profesional, memastikan setiap pesanan memenuhi standar terbaik. Pilih kami untuk solusi bambu terbaik yang sesuai dengan kebutuhan Anda."
+  text = "Situs __DOMAIN__ menyediakan berbagai jenis bambu berkualitas tinggi, termasuk Bambu Tali, Bambu Steger, Bambu Hitam, dan Bambu Hias. Kami menawarkan produk dengan harga terjangkau dan layanan profesional, memastikan setiap pesanan memenuhi standar terbaik. Pilih kami untuk solusi bambu terbaik yang sesuai dengan kebutuhan Anda."
 
   [[params.footer_contact]]
     icon = "fas fa-map-marker-alt"
@@ -88,21 +93,21 @@ paginate = 6
 [[params.testimonials]]
   avatar = "/images/admin/avatar1.png"
   name = "{Budi|Agus|Rudi|Andi|Eko|Fajar|Toni|Samsul|Dedi|Wawan}"
-  message = "{Saya membeli|Saya memesan|Saya menggunakan} bambu tali dari bambu.bangunan.co dan {kualitasnya sangat memuaskan|hasilnya luar biasa|kualitasnya benar-benar unggul}. {Cocok|Sangat pas|Ideal} untuk kebutuhan {proyek|pembangunan|konstruksi} saya dan {harganya sangat bersaing|harga yang ditawarkan cukup kompetitif|harga yang diberikan sangat menarik}."
+  message = "{Saya membeli|Saya memesan|Saya menggunakan} bambu tali dari __DOMAIN__ dan {kualitasnya sangat memuaskan|hasilnya luar biasa|kualitasnya benar-benar unggul}. {Cocok|Sangat pas|Ideal} untuk kebutuhan {proyek|pembangunan|konstruksi} saya dan {harganya sangat bersaing|harga yang ditawarkan cukup kompetitif|harga yang diberikan sangat menarik}."
   response = "{Terima kasih atas ulasannya! Kami senang bambu tali kami {memenuhi kebutuhan|sesuai dengan kebutuhan|mendukung proyek} proyek Anda.|Terima kasih, atas kepercayaannya. Kami senang produk bambu tali kami dapat {membantu|menyempurnakan|memfasilitasi} proyek Anda.}"
   rating = 4
 
 [[params.testimonials]]
   avatar = "/images/admin/avatar2.png"
   name = "{Siti|Rina|Ayu|Lina|Dewi|Fitri|Diah|Maya|Nur|Sari}"
-  message = "Bambu steger yang saya beli {di sini|di bambu.bangunan.co|dari toko ini} {sangat kuat|benar-benar kokoh|luar biasa kokoh} dan {tahan lama|awet|sangat durable}. {Layanan pengiriman|Pengirimannya|Proses pengantaran} juga {cepat|efisien|tepat waktu} dan {efisien|tanpa kendala|sesuai harapan}. {Sangat puas|Saya benar-benar puas|Saya sangat senang} dengan pembelian ini."
+  message = "Bambu steger yang saya beli {di sini|di __DOMAIN__|dari toko ini} {sangat kuat|benar-benar kokoh|luar biasa kokoh} dan {tahan lama|awet|sangat durable}. {Layanan pengiriman|Pengirimannya|Proses pengantaran} juga {cepat|efisien|tepat waktu} dan {efisien|tanpa kendala|sesuai harapan}. {Sangat puas|Saya benar-benar puas|Saya sangat senang} dengan pembelian ini."
   response = "{Kami sangat menghargai kepercayaan Anda. Senang mendengar bahwa bambu steger kami {sesuai dengan harapan|memenuhi ekspektasi|tepat dengan kebutuhan} Anda.|Terima kasih! Kami senang dapat menyediakan bambu steger berkualitas yang mendukung proyek Anda.}"
   rating = 5
 
 [[params.testimonials]]
   avatar = "/images/admin/avatar3.png"
   name = "{Joko|Bayu|Toni|Galih|Bambang|Ali|Rizal|Faisal|Yanto|Deni}"
-  message = "Bambu hitam dari bambu.bangunan.co {memiliki kualitas yang sangat baik|berkualitas tinggi|luar biasa} dan {warna yang konsisten|warnanya seragam|warna hitamnya sangat bagus}. {Ideal|Cocok|Pas} untuk {desain lanskap|taman|proyek lanskap} saya."
+  message = "Bambu hitam dari __DOMAIN__ {memiliki kualitas yang sangat baik|berkualitas tinggi|luar biasa} dan {warna yang konsisten|warnanya seragam|warna hitamnya sangat bagus}. {Ideal|Cocok|Pas} untuk {desain lanskap|taman|proyek lanskap} saya."
   response = "{Terima kasih! Kami berkomitmen untuk menyediakan bambu hitam {berkualitas tinggi|terbaik|unggulan} untuk memenuhi kebutuhan desain Anda.|Terima kasih! Kami senang bambu hitam kami {dapat mendukung|memenuhi kebutuhan|tepat untuk} proyek desain lanskap Anda.}"
   rating = 4
 
@@ -116,14 +121,14 @@ paginate = 6
 [[params.testimonials]]
   avatar = "/images/admin/avatar5.png"
   name = "{Rina|Siti|Lina|Ayu|Dewi|Fitri|Diah|Nur|Maya|Sari}"
-  message = "{Pelayanan di bambu.bangunan.co|Layanan yang saya terima dari bambu.bangunan.co} {sangat baik|luar biasa|memuaskan} dan {informatif|memberikan banyak informasi|sangat membantu}. Bambu tali yang saya beli {sangat sesuai|pas sekali|ideal} untuk {proyek kerajinan|pembuatan kerajinan|pekerjaan kerajinan} saya."
+  message = "{Pelayanan di __DOMAIN__|Layanan yang saya terima dari __DOMAIN__} {sangat baik|luar biasa|memuaskan} dan {informatif|memberikan banyak informasi|sangat membantu}. Bambu tali yang saya beli {sangat sesuai|pas sekali|ideal} untuk {proyek kerajinan|pembuatan kerajinan|pekerjaan kerajinan} saya."
   response = "{Terima kasih! Kami senang bambu tali kami {cocok untuk|sesuai dengan|tepat untuk} proyek kerajinan Anda.|Terima kasih, atas kepercayaannya. Kami senang produk kami dapat mendukung proyek kerajinan Anda.}"
   rating = 4
 
 [[params.testimonials]]
   avatar = "/images/admin/avatar6.png"
   name = "{Eko|Rio|Galih|Faisal|Benny|Wawan|Toni|Rizal|Joko|Yanto}"
-  message = "{Bambu hias yang saya beli|Produk bambu hias dari bambu.bangunan.co} {sangat berkualitas|berkualitas tinggi|memiliki kualitas yang sangat baik} dan {memberikan tampilan yang menarik|membuat ruang interior saya lebih indah|menciptakan suasana yang eksotis} pada {ruang interior|ruangan dalam|desain interior} saya. {Pembelian yang sangat memuaskan|Benar-benar puas dengan pembelian ini|Saya sangat puas dengan produk ini}."
+  message = "{Bambu hias yang saya beli|Produk bambu hias dari __DOMAIN__} {sangat berkualitas|berkualitas tinggi|memiliki kualitas yang sangat baik} dan {memberikan tampilan yang menarik|membuat ruang interior saya lebih indah|menciptakan suasana yang eksotis} pada {ruang interior|ruangan dalam|desain interior} saya. {Pembelian yang sangat memuaskan|Benar-benar puas dengan pembelian ini|Saya sangat puas dengan produk ini}."
   response = "{Kami senang mendengar bahwa bambu hias kami {mempercantik|memperindah|menambah keindahan} ruang interior Anda. Terima kasih atas ulasannya!|Terima kasih! Kami senang produk kami dapat {memenuhi harapan|sesuai ekspektasi|tepat untuk} kebutuhan desain interior Anda.}"
   rating = 5
 

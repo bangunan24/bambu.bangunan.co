@@ -13,6 +13,7 @@ const fs = require('fs');
 const path = require('path');
 const toml = require('toml');
 const yaml = require('js-yaml');
+const { getSiteConfig } = require('./lib/site-config.js');
 
 const rootDir = path.join(__dirname, '..');
 
@@ -25,8 +26,16 @@ function findConfigFile() {
   return null;
 }
 
+// __DOMAIN__ / __BRAND__ in testimonial text come from baseURL / [params] brand (single place to change).
+function fillTokens(text) {
+  if (typeof text !== 'string') return text;
+  const { host, brand } = getSiteConfig();
+  return text.replace(/__DOMAIN__/g, host).replace(/__BRAND__/g, brand);
+}
+
 function processSpintax(text) {
   if (typeof text !== 'string') return text;
+  text = fillTokens(text);
 
   const regex = /\{([^{}]+)\}/g;
   let result = text;

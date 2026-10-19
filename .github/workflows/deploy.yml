@@ -106,7 +106,7 @@ jobs:
             git rebase -X theirs origin/master
           done
 
-      # AFTER the push: wait until Cloudflare Pages is serving https://bambu.bangunan.co/<key>.txt,
+      # AFTER the push: wait until Cloudflare Pages is serving https://<domain>/<key>.txt,
       # then tell IndexNow (Bing/Yandex/Seznam/Naver) which URLs are new or changed. Fails the run
       # loudly (red X) if the submission is rejected, instead of silently doing nothing.
       - name: Notify IndexNow (new / changed URLs)

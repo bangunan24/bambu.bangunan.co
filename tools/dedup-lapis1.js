@@ -9,7 +9,7 @@
  * file, while the AI step (rate-limit prone) can be run repeatedly without redoing this one.
  *
  * Articles are grouped by SECTION so that only titles within the same section are compared. For
- * bambu.bangunan.co the content is FLAT (content/<slug>.md), so the section is the first
+ * this site the content is FLAT (content/<slug>.md), so the section is the first
  * `categories` entry of the front matter (currently "harga"). Files without `categories`
  * (e.g. terms-of-service.md) are site pages, not articles, and are ignored.
  *
