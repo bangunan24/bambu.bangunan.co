@@ -8,5 +8,5 @@ Noindex: /tags/*/page/
 Disallow: /page/
 Noindex: /page/
 
-Sitemap: https://bambu.bangunan.co/sitemap.xml
-Sitemap: https://bambu.bangunan.co/sitemap.xml.gz
+Sitemap: https://bambu-bangunan-co.pages.dev/sitemap.xml
+Sitemap: https://bambu-bangunan-co.pages.dev/sitemap.xml.gz
