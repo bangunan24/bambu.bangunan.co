@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bojong Purwakarta [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Angke Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-angke-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Angke Jakarta \[Terdekat\]](/jual-bambu-steger-di-angke-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Bojong Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini benar-benar kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Wonosari \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wonosari-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wonosari \[Terdekat\]](/jual-bambu-steger-di-wonosari-terdekat/)
 
 ## Supplier Bambu Terdekat Di Bojong Purwakarta
 

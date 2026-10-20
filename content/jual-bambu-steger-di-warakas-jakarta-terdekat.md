@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Warakas Jakarta [Terdekat]](/images/jual-bambu-tali-17.png)
 
-**Lainnya:** [Jual Bambu Steger di Keagungan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-keagungan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Keagungan Jakarta \[Terdekat\]](/jual-bambu-steger-di-keagungan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Warakas Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu jenis bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini sungguh-sungguh kuat seandainya diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Magelang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-magelang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Magelang \[Terdekat\]](/jual-bambu-steger-di-magelang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Warakas Jakarta
 

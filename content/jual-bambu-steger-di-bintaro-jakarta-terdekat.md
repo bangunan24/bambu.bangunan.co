@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bintaro Jakarta [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Bantarjati Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bantarjati-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bantarjati Bogor \[Terdekat\]](/jual-bambu-steger-di-bantarjati-bogor-terdekat/)
 
 ## Jenis-Jenis Bambu dan Kegunaannya yang Tersedia di Bintaro Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung dikenal dengan warna batangnya yang khas, yaitu hitam atau hijau ke
 
 Bambu kuning tergolong jenis bambu yang relatif sulit ditemukan karena tidak tumbuh secara luas di seluruh wilayah Indonesia. Selain itu, penggunaannya pun tidak sepopuler jenis bambu lainnya. Ciri-ciri bambu kuning antara lain diameter yang relatif kecil, sekitar 5 hingga 8 sentimeter, permukaan batang yang beruas-ruas, dan tinggi batang yang tidak terlalu tinggi, berkisar antara 4 hingga 10 meter, dengan ketebalan yang cukup signifikan, mencapai sekitar 2 sentimeter. Bambu kuning dikenal memiliki khasiat obat tradisional untuk berbagai penyakit, termasuk infeksi dan gangguan hati. Bambu ini sering dimanfaatkan sebagai tanaman hias di pekarangan rumah, bahkan ditanam dalam pot-pot kecil karena tampilan yang unik dan artistik. Di daerah pedesaan, bambu kuning sering digunakan sebagai bahan pembuatan pagar, yang dikenal kuat dan tahan lama.
 
-**Lainnya:** [Jual Bambu Steger di Tomang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tomang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tomang Jakarta \[Terdekat\]](/jual-bambu-steger-di-tomang-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat di Bintaro Jakarta
 

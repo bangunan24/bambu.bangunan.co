@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukaraja [Terdekat]](/images/jual-bambu-tali-29.png)
 
-**Lainnya:** [Jual Bambu Steger di Genteng Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-genteng-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Genteng Bogor \[Terdekat\]](/jual-bambu-steger-di-genteng-bogor-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Sukaraja
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini sangat tahan bila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pejagalan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pejagalan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pejagalan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pejagalan-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Sukaraja
 

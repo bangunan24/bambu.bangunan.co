@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Klari Karawang [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Koja Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-koja-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Koja Jakarta \[Terdekat\]](/jual-bambu-steger-di-koja-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Klari Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini benar-benar kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kemiri Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemiri-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemiri Tangerang \[Terdekat\]](/jual-bambu-steger-di-kemiri-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Klari Karawang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kemiri Muka Depok [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Bidara Cina Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bidara-cina-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bidara Cina Jakarta \[Terdekat\]](/jual-bambu-steger-di-bidara-cina-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kemiri Muka Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini sungguh-sungguh tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tebet Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tebet-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tebet Jakarta \[Terdekat\]](/jual-bambu-steger-di-tebet-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kemiri Muka Depok
 

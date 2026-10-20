@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cabangbungin Bekasi [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Pamoyanan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pamoyanan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pamoyanan Bogor \[Terdekat\]](/jual-bambu-steger-di-pamoyanan-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Cabangbungin Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini betul-betul kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatiluhur Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiluhur-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiluhur Purwakarta \[Terdekat\]](/jual-bambu-steger-di-jatiluhur-purwakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cabangbungin Bekasi
 

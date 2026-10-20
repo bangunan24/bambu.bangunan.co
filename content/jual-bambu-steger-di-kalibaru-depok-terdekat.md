@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalibaru Depok [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Tamansari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tamansari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tamansari Jakarta \[Terdekat\]](/jual-bambu-steger-di-tamansari-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kalibaru Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah macam bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sangat kuat apabila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia khususnya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bondowoso \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bondowoso-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bondowoso \[Terdekat\]](/jual-bambu-steger-di-bondowoso-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kalibaru Depok
 

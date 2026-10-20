@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebayoran Jakarta [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Kampung Rawa Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kampung-rawa-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kampung Rawa Jakarta \[Terdekat\]](/jual-bambu-steger-di-kampung-rawa-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kebayoran Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini benar-benar tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mengwi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mengwi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mengwi \[Terdekat\]](/jual-bambu-steger-di-mengwi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kebayoran Jakarta
 

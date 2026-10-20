@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Arjawinangun [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Cilendek Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilendek-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilendek Bogor \[Terdekat\]](/jual-bambu-steger-di-cilendek-bogor-terdekat/)
 
 ## Ragam Jenis Bambu dan Manfaatnya di Arjawinangun
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas yang membedakannya dari jenis bambu lainnya, yai
 
 Bambu kuning termasuk jenis bambu yang relatif sulit ditemukan karena tidak tumbuh di semua wilayah. Fungsinya juga tidak seumum jenis lainnya, namun memiliki manfaat khusus. Anda dapat mengenali bambu kuning dari diameternya yang kecil, sekitar 5 hingga 8 cm, dengan ketebalan mencapai 2 cm dan tinggi sekitar 4 hingga 10 meter. Bambu kuning dikenal karena khasiat obat herbalnya yang dapat digunakan untuk mengatasi berbagai penyakit, seperti infeksi dan hepatitis. Di kalangan masyarakat modern, bambu kuning sering digunakan sebagai tanaman hias, bahkan ditanam dalam pot-pot kecil karena bentuknya yang unik dan warna yang artistik. Di pedesaan, bambu kuning kerap dimanfaatkan sebagai bahan pagar karena memiliki ketahanan yang lebih baik dibandingkan jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Rawasari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawasari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawasari Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawasari-jakarta-terdekat/)
 
 ## Pemasok Bambu Terpercaya di Arjawinangun
 

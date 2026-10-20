@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rawalumbu Bekasi [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Pademangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pademangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pademangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pademangan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Rawalumbu Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini betul-betul tahan jikalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jawilan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jawilan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jawilan \[Terdekat\]](/jual-bambu-steger-di-jawilan-terdekat/)
 
 ## Penjual Bambu Terdekat Di Rawalumbu Bekasi
 

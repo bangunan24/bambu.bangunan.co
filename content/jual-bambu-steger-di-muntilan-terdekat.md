@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Muntilan [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Probolinggo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-probolinggo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Probolinggo \[Terdekat\]](/jual-bambu-steger-di-probolinggo-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Muntilan
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini amat tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipete Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipete-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipete Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipete-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Muntilan
 

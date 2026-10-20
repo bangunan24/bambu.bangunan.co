@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Loji Bogor [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Citeureup \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-citeureup-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Citeureup \[Terdekat\]](/jual-bambu-steger-di-citeureup-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Loji Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini amat kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Bambu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-bambu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Bambu Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-bambu-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Loji Bogor
 

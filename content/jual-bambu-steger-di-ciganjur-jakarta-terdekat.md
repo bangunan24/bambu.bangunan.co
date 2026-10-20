@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciganjur Jakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Tambora Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tambora-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tambora Jakarta \[Terdekat\]](/jual-bambu-steger-di-tambora-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ciganjur Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan bila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojongsoang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojongsoang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojongsoang \[Terdekat\]](/jual-bambu-steger-di-bojongsoang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Ciganjur Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pasawahan Purwakarta [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Tanah Baru Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanah-baru-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanah Baru Bogor \[Terdekat\]](/jual-bambu-steger-di-tanah-baru-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pasawahan Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapatkan sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul tahan jika dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojongkerta Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojongkerta-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojongkerta Bogor \[Terdekat\]](/jual-bambu-steger-di-bojongkerta-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Pasawahan Purwakarta
 

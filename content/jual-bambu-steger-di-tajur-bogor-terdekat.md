@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tajur Bogor [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukapura Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukapura-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukapura Jakarta \[Terdekat\]](/jual-bambu-steger-di-sukapura-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Tajur Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapatkan sebab memang tidak tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini amat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciamis \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciamis-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciamis \[Terdekat\]](/jual-bambu-steger-di-ciamis-terdekat/)
 
 ## Supplier Bambu Terdekat Di Tajur Bogor
 

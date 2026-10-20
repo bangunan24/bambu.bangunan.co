@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciledug Tangerang [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Guntur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-guntur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Guntur Jakarta \[Terdekat\]](/jual-bambu-steger-di-guntur-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Ciledug Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini amat kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pati \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pati-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pati \[Terdekat\]](/jual-bambu-steger-di-pati-terdekat/)
 
 ## Penjual Bambu Terdekat Di Ciledug Tangerang
 

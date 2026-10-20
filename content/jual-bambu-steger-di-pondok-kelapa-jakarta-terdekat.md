@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Kelapa Jakarta [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Bukit Duri Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bukit-duri-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bukit Duri Jakarta \[Terdekat\]](/jual-bambu-steger-di-bukit-duri-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Pondok Kelapa Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sunter Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sunter-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sunter Jakarta \[Terdekat\]](/jual-bambu-steger-di-sunter-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pondok Kelapa Jakarta
 

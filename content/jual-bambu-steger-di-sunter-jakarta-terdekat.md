@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sunter Jakarta [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Pluit Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pluit-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pluit Jakarta \[Terdekat\]](/jual-bambu-steger-di-pluit-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Sunter Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini benar-benar tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciwidey \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciwidey-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciwidey \[Terdekat\]](/jual-bambu-steger-di-ciwidey-terdekat/)
 
 ## Penjual Bambu Terdekat Di Sunter Jakarta
 

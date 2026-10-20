@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pakuan Bogor [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Kalibaru Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalibaru-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalibaru Depok \[Terdekat\]](/jual-bambu-steger-di-kalibaru-depok-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Pakuan Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini sangat tahan sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mulyaharja Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mulyaharja-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mulyaharja Bogor \[Terdekat\]](/jual-bambu-steger-di-mulyaharja-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pakuan Bogor
 

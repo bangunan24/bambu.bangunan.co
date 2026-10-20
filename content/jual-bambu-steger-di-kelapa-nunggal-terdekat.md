@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kelapa Nunggal [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Tegal Alur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegal-alur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegal Alur Jakarta \[Terdekat\]](/jual-bambu-steger-di-tegal-alur-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Kelapa Nunggal
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk didapat karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini sangat kuat jika dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bendungan Hilir Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bendungan-hilir-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bendungan Hilir Jakarta \[Terdekat\]](/jual-bambu-steger-di-bendungan-hilir-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kelapa Nunggal
 

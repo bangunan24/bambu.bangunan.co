@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibarusah Bekasi [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Pebayuran Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pebayuran-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pebayuran Bekasi \[Terdekat\]](/jual-bambu-steger-di-pebayuran-bekasi-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cibarusah Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini amat kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Grogol Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-grogol-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Grogol Jakarta \[Terdekat\]](/jual-bambu-steger-di-grogol-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cibarusah Bekasi
 

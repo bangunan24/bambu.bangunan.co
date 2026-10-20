@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bondowoso [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Tegal Gundil Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegal-gundil-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegal Gundil Bogor \[Terdekat\]](/jual-bambu-steger-di-tegal-gundil-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Bondowoso
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini amat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Benda Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-benda-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Benda Tangerang \[Terdekat\]](/jual-bambu-steger-di-benda-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Bondowoso
 

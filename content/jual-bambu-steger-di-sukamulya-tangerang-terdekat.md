@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukamulya Tangerang [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Bantar Gebang Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bantar-gebang-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bantar Gebang Bekasi \[Terdekat\]](/jual-bambu-steger-di-bantar-gebang-bekasi-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Sukamulya Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini betul-betul tahan apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Trenggalek \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-trenggalek-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Trenggalek \[Terdekat\]](/jual-bambu-steger-di-trenggalek-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sukamulya Tangerang
 

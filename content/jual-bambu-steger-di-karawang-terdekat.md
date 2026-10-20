@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karawang [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Kelapa Dua Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kelapa-dua-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kelapa Dua Jakarta \[Terdekat\]](/jual-bambu-steger-di-kelapa-dua-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yang terbilang susah untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini sangat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Krendang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-krendang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Krendang Jakarta \[Terdekat\]](/jual-bambu-steger-di-krendang-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Karawang
 

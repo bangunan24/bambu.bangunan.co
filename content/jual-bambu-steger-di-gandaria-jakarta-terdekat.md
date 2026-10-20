@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gandaria Jakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Karet Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karet-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karet Jakarta \[Terdekat\]](/jual-bambu-steger-di-karet-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Gandaria Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini benar-benar kuat seandainya diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Maniis Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-maniis-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Maniis Purwakarta \[Terdekat\]](/jual-bambu-steger-di-maniis-purwakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Gandaria Jakarta
 

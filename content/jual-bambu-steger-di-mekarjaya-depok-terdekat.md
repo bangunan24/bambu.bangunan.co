@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mekarjaya Depok [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Cempaka Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cempaka-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cempaka Jakarta \[Terdekat\]](/jual-bambu-steger-di-cempaka-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mekarjaya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini amat tahan sekiranya dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukaresmi Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukaresmi-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukaresmi Bogor \[Terdekat\]](/jual-bambu-steger-di-sukaresmi-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Mekarjaya Depok
 

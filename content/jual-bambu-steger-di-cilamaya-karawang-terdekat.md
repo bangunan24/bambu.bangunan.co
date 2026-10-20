@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilamaya Karawang [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Lenteng Agung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lenteng-agung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lenteng Agung Jakarta \[Terdekat\]](/jual-bambu-steger-di-lenteng-agung-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cilamaya Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sangat tahan apabila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Kelapa Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-kelapa-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Kelapa Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-kelapa-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cilamaya Karawang
 

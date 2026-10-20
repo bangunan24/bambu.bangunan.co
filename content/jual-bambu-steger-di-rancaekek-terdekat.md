@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rancaekek [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Pasar Rebo Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasar-rebo-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasar Rebo Jakarta \[Terdekat\]](/jual-bambu-steger-di-pasar-rebo-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Rancaekek
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini sangat kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gunungkaler Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunungkaler-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunungkaler Tangerang \[Terdekat\]](/jual-bambu-steger-di-gunungkaler-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Rancaekek
 

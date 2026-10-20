@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bantarjati Bogor [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Johar Baru Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-johar-baru-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Johar Baru Jakarta \[Terdekat\]](/jual-bambu-steger-di-johar-baru-jakarta-terdekat/)
 
 ## Mengenal Lebih Dekat Jenis-Jenis Bambu dan Kegunaannya di Bantarjati Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas berupa warna batangnya yang hitam atau hijau keh
 
 Bambu kuning termasuk jenis bambu yang relatif sulit ditemukan karena tidak tumbuh di semua wilayah. Fungsinya juga tidak seumum jenis bambu lainnya. Bambu ini memiliki diameter yang relatif kecil, yaitu sekitar 5 hingga 8 cm, dengan permukaan beruas-ruas dan tinggi batang berkisar antara 4 hingga 10 meter. Meskipun demikian, bambu kuning memiliki ketebalan yang cukup kuat, sekitar 2 cm. Bambu kuning dikenal sebagai salah satu jenis bambu yang dapat dibudidayakan dan dicangkok. Beberapa masyarakat juga meyakini bahwa bambu kuning memiliki khasiat obat herbal untuk berbagai penyakit. Terkadang, bambu kuning dimanfaatkan sebagai tanaman hias, terutama varietas mini yang ditanam dalam pot. Di daerah pedesaan, bambu kuning sering digunakan sebagai bahan pagar karena memiliki daya tahan yang lebih tinggi dibandingkan jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Nagreg \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-nagreg-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Nagreg \[Terdekat\]](/jual-bambu-steger-di-nagreg-terdekat/)
 
 ## Supplier Bambu Steger Terpercaya di Bantarjati Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Telagasari Karawang [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebayoran Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebayoran-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebayoran Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebayoran-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Telagasari Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini sangat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Lubang Buaya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lubang-buaya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lubang Buaya Jakarta \[Terdekat\]](/jual-bambu-steger-di-lubang-buaya-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Telagasari Karawang
 

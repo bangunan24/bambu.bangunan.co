@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karang Anyar Jakarta [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Pinangsia Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pinangsia-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pinangsia Jakarta \[Terdekat\]](/jual-bambu-steger-di-pinangsia-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Karang Anyar Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah tipe bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh kuat jikalau dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Demak \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-demak-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Demak \[Terdekat\]](/jual-bambu-steger-di-demak-terdekat/)
 
 ## Penjual Bambu Terdekat Di Karang Anyar Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pemalang [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Muarasari Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-muarasari-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Muarasari Bogor \[Terdekat\]](/jual-bambu-steger-di-muarasari-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pemalang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini sangat kuat seandainya digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalibata Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalibata-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalibata Jakarta \[Terdekat\]](/jual-bambu-steger-di-kalibata-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pemalang
 

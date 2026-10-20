@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cisalak Depok [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Mauk Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mauk-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mauk Tangerang \[Terdekat\]](/jual-bambu-steger-di-mauk-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cisalak Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sangat tahan kalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karangtengah Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangtengah-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangtengah Tangerang \[Terdekat\]](/jual-bambu-steger-di-karangtengah-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cisalak Depok
 

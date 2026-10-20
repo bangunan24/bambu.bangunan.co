@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karanganyar [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Kelapa Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-kelapa-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Kelapa Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-kelapa-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Karanganyar
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini benar-benar tahan apabila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cisarua \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisarua-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisarua \[Terdekat\]](/jual-bambu-steger-di-cisarua-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Karanganyar
 

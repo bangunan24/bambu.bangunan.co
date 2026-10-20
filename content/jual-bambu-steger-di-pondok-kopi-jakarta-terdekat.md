@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Kopi Jakarta [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Tanah Sareal Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanah-sareal-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanah Sareal Bogor \[Terdekat\]](/jual-bambu-steger-di-tanah-sareal-bogor-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Pondok Kopi Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini amat tahan kalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojong Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojong-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojong Purwakarta \[Terdekat\]](/jual-bambu-steger-di-bojong-purwakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Pondok Kopi Jakarta
 

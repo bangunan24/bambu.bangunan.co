@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cimahpar Bogor [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Neglasari Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-neglasari-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Neglasari Tangerang \[Terdekat\]](/jual-bambu-steger-di-neglasari-tangerang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cimahpar Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini benar-benar kuat bila digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Joglo Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-joglo-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Joglo Jakarta \[Terdekat\]](/jual-bambu-steger-di-joglo-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cimahpar Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jayanti Tangerang [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Pakuhaji Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pakuhaji-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pakuhaji Tangerang \[Terdekat\]](/jual-bambu-steger-di-pakuhaji-tangerang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Jayanti Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini sangat kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatisari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatisari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatisari Karawang \[Terdekat\]](/jual-bambu-steger-di-jatisari-karawang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jayanti Tangerang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jambe Tangerang [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Wonogiri \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wonogiri-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wonogiri \[Terdekat\]](/jual-bambu-steger-di-wonogiri-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Jambe Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapat sebab memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini sangat kuat jika diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Arjawinangun \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-arjawinangun-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Arjawinangun \[Terdekat\]](/jual-bambu-steger-di-arjawinangun-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Jambe Tangerang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pegadungan Jakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Krukut Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-krukut-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Krukut Depok \[Terdekat\]](/jual-bambu-steger-di-krukut-depok-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pegadungan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang susah untuk diperoleh sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini betul-betul kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kedung Halang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-halang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Halang Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-halang-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Pegadungan Jakarta
 

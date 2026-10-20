@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mekarsari Depok [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Krukut Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-krukut-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Krukut Jakarta \[Terdekat\]](/jual-bambu-steger-di-krukut-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Mekarsari Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini sangat kuat bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kedung Badak Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-badak-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Badak Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-badak-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Mekarsari Depok
 

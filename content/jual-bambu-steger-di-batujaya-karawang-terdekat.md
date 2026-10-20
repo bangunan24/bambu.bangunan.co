@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Batujaya Karawang [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Pandeglang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pandeglang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pandeglang \[Terdekat\]](/jual-bambu-steger-di-pandeglang-terdekat/)
 
 ## Ragam Bambu dan Kegunaannya di Batujaya Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki warna khas hitam atau hijau kehitaman, terkadang dengan se
 
 Bambu kuning tergolong lebih sulit ditemukan karena tidak tumbuh di sembarang tempat. Selain itu, kegunaannya mungkin kurang umum dibandingkan jenis bambu lainnya. Ciri-cirinya meliputi lingkaran kecil (5-8 cm), permukaan beruas-ruas, tinggi batang sekitar 4-10 meter, namun dengan ketebalan yang cukup signifikan hingga 2 cm. Bambu kuning dipercaya memiliki khasiat obat herbal untuk berbagai penyakit yang berkaitan dengan organ dalam seperti infeksi dan hepatitis. Di perkotaan, bambu kuning sering digunakan sebagai tanaman hias, khususnya dalam pot-pot minimalis karena bentuknya yang unik dan warna yang artistik. Bambu kuning juga banyak diaplikasikan sebagai material pagar yang tahan lama.
 
-**Lainnya:** [Jual Bambu Steger di Jati Padang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jati-padang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jati Padang Jakarta \[Terdekat\]](/jual-bambu-steger-di-jati-padang-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya di Batujaya Karawang
 

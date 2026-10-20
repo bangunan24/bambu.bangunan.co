@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tambelang Bekasi [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Bojongsoang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojongsoang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojongsoang \[Terdekat\]](/jual-bambu-steger-di-bojongsoang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Tambelang Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini sangat kuat bila digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tambora Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tambora-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tambora Jakarta \[Terdekat\]](/jual-bambu-steger-di-tambora-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tambelang Bekasi
 

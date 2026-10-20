@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tapos Depok [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Kayumanis Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kayumanis-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kayumanis Bogor \[Terdekat\]](/jual-bambu-steger-di-kayumanis-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tapos Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini amat tahan apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Magetan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-magetan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Magetan \[Terdekat\]](/jual-bambu-steger-di-magetan-terdekat/)
 
 ## Supplier Bambu Terdekat Di Tapos Depok
 

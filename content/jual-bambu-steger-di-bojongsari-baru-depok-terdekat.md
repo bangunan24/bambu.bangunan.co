@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bojongsari Baru Depok [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Cisoka Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisoka-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisoka Tangerang \[Terdekat\]](/jual-bambu-steger-di-cisoka-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Bojongsari Baru Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk diperoleh sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sangat tahan apabila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Cina Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-cina-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Cina Depok \[Terdekat\]](/jual-bambu-steger-di-pondok-cina-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Bojongsari Baru Depok
 

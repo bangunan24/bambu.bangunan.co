@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ratu Jaya Depok [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Sepatan Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sepatan-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sepatan Tangerang \[Terdekat\]](/jual-bambu-steger-di-sepatan-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ratu Jaya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini amat kuat seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikangkung \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikangkung-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikangkung \[Terdekat\]](/jual-bambu-steger-di-cikangkung-terdekat/)
 
 ## Penjual Bambu Terdekat Di Ratu Jaya Depok
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cimanggis Depok [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawa Bunga Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawa-bunga-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawa Bunga Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawa-bunga-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cimanggis Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini benar-benar tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilincing Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilincing-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilincing Jakarta \[Terdekat\]](/jual-bambu-steger-di-cilincing-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cimanggis Depok
 

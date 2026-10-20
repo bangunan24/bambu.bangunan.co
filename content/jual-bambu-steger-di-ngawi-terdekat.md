@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ngawi [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukoharjo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukoharjo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukoharjo \[Terdekat\]](/jual-bambu-steger-di-sukoharjo-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Ngawi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cakung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cakung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cakung Jakarta \[Terdekat\]](/jual-bambu-steger-di-cakung-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Ngawi
 

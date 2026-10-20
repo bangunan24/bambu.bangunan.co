@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cikoko Jakarta [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciluar Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciluar-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciluar Bogor \[Terdekat\]](/jual-bambu-steger-di-ciluar-bogor-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cikoko Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini betul-betul kuat jika diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rawa Badak Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawa-badak-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawa Badak Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawa-badak-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cikoko Jakarta
 

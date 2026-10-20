@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Limo Depok [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikampek Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikampek-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikampek Karawang \[Terdekat\]](/jual-bambu-steger-di-cikampek-karawang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Limo Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini sangat kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Serdang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serdang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serdang Jakarta \[Terdekat\]](/jual-bambu-steger-di-serdang-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Limo Depok
 

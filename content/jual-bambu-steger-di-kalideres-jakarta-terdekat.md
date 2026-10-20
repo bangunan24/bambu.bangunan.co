@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalideres Jakarta [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Serdang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serdang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serdang Jakarta \[Terdekat\]](/jual-bambu-steger-di-serdang-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kalideres Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini sungguh-sungguh kuat bila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikampek Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikampek-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikampek Karawang \[Terdekat\]](/jual-bambu-steger-di-cikampek-karawang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Kalideres Jakarta
 

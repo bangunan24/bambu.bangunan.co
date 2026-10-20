@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Dramaga [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Kepanjen \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kepanjen-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kepanjen \[Terdekat\]](/jual-bambu-steger-di-kepanjen-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Dramaga
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini benar-benar kuat sekiranya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Klari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-klari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Klari Karawang \[Terdekat\]](/jual-bambu-steger-di-klari-karawang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Dramaga
 

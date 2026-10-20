@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Senen Jakarta [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Rengasdengklok Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rengasdengklok-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rengasdengklok Karawang \[Terdekat\]](/jual-bambu-steger-di-rengasdengklok-karawang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Senen Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah tipe bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini sangat tahan sekiranya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilebar Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilebar-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilebar Karawang \[Terdekat\]](/jual-bambu-steger-di-cilebar-karawang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Senen Jakarta
 

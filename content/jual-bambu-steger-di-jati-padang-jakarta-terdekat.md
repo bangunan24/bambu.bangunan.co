@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jati Padang Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Sindang Barang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindang-barang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindang Barang Bogor \[Terdekat\]](/jual-bambu-steger-di-sindang-barang-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Jati Padang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciganjur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciganjur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciganjur Jakarta \[Terdekat\]](/jual-bambu-steger-di-ciganjur-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Jati Padang Jakarta
 

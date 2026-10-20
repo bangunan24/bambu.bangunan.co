@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Plered Purwakarta [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Mekarjaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarjaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarjaya Depok \[Terdekat\]](/jual-bambu-steger-di-mekarjaya-depok-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Plered Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini amat kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karanganyar \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karanganyar-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karanganyar \[Terdekat\]](/jual-bambu-steger-di-karanganyar-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Plered Purwakarta
 

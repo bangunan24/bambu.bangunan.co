@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pinang Ranti Jakarta [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Pangkalan Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pangkalan-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pangkalan Karawang \[Terdekat\]](/jual-bambu-steger-di-pangkalan-karawang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Pinang Ranti Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu jenis bambu yg terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini benar-benar tahan kalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jambe Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jambe-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jambe Tangerang \[Terdekat\]](/jual-bambu-steger-di-jambe-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pinang Ranti Jakarta
 

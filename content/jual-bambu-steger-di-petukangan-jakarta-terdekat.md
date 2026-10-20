@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Petukangan Jakarta [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Sawangan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sawangan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sawangan Depok \[Terdekat\]](/jual-bambu-steger-di-sawangan-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Petukangan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk diperoleh sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini betul-betul kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikupa Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikupa-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikupa Tangerang \[Terdekat\]](/jual-bambu-steger-di-cikupa-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Petukangan Jakarta
 

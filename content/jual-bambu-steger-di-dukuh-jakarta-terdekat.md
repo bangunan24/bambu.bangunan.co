@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Dukuh Jakarta [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Bondowoso \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bondowoso-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bondowoso \[Terdekat\]](/jual-bambu-steger-di-bondowoso-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Dukuh Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah macam bambu yang terbilang susah untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini amat kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tamansari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tamansari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tamansari Jakarta \[Terdekat\]](/jual-bambu-steger-di-tamansari-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Dukuh Jakarta
 

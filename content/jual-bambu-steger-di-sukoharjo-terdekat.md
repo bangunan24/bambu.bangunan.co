@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukoharjo [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Jeruk Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-jeruk-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Jeruk Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-jeruk-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Sukoharjo
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini benar-benar tahan apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Leuwinanggung Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-leuwinanggung-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Leuwinanggung Depok \[Terdekat\]](/jual-bambu-steger-di-leuwinanggung-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sukoharjo
 

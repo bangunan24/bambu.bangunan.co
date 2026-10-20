@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Semplak Bogor [Terdekat]](/images/jual-bambu-tali-39.png)
 
-**Lainnya:** [Jual Bambu Steger di Balaraja Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-balaraja-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Balaraja Tangerang \[Terdekat\]](/jual-bambu-steger-di-balaraja-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Semplak Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk didapatkan karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini benar-benar kuat jika digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Wanayasa Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wanayasa-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wanayasa Purwakarta \[Terdekat\]](/jual-bambu-steger-di-wanayasa-purwakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Semplak Bogor
 

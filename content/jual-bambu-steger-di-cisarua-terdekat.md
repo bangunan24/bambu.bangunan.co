@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cisarua [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Jepara \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jepara-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jepara \[Terdekat\]](/jual-bambu-steger-di-jepara-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cisarua
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sungguh-sungguh tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ngamprah \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ngamprah-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ngamprah \[Terdekat\]](/jual-bambu-steger-di-ngamprah-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cisarua
 

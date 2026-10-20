@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Salam Purwakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Ranggamekar Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ranggamekar-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ranggamekar Bogor \[Terdekat\]](/jual-bambu-steger-di-ranggamekar-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Pondok Salam Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini amat tahan bila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cimanggis Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimanggis-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimanggis Depok \[Terdekat\]](/jual-bambu-steger-di-cimanggis-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pondok Salam Purwakarta
 

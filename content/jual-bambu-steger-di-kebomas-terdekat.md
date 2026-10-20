@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebomas [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Gede Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-gede-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Gede Bekasi \[Terdekat\]](/jual-bambu-steger-di-pondok-gede-bekasi-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kebomas
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini umum diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh kuat bila diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciseeng \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciseeng-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciseeng \[Terdekat\]](/jual-bambu-steger-di-ciseeng-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kebomas
 

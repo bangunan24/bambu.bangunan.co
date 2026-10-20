@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tamansari Jakarta [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukmajaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukmajaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukmajaya Depok \[Terdekat\]](/jual-bambu-steger-di-sukmajaya-depok-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Tamansari Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Campaka Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-campaka-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Campaka Purwakarta \[Terdekat\]](/jual-bambu-steger-di-campaka-purwakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Tamansari Jakarta
 

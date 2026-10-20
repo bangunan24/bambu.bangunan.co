@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mengwi [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Arjawinangun \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-arjawinangun-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Arjawinangun \[Terdekat\]](/jual-bambu-steger-di-arjawinangun-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mengwi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu jenis bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini sangat tahan jika dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Wonogiri \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wonogiri-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wonogiri \[Terdekat\]](/jual-bambu-steger-di-wonogiri-terdekat/)
 
 ## Penjual Bambu Terdekat Di Mengwi
 

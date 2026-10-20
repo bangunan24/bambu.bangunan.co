@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Jaya Depok [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Larangan Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-larangan-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Larangan Tangerang \[Terdekat\]](/jual-bambu-steger-di-larangan-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pondok Jaya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah tipe bambu yang terbilang sulit untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini benar-benar kuat apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di KebonSirih Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebonsirih-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di KebonSirih Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebonsirih-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Pondok Jaya Depok
 

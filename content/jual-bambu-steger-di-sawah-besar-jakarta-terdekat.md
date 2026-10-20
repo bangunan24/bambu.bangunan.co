@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sawah Besar Jakarta [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Pekayon Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pekayon-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pekayon Jakarta \[Terdekat\]](/jual-bambu-steger-di-pekayon-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Sawah Besar Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini betul-betul kuat jika diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gedong Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gedong-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gedong Jakarta \[Terdekat\]](/jual-bambu-steger-di-gedong-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sawah Besar Jakarta
 

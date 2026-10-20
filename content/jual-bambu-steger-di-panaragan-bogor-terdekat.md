@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Panaragan Bogor [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipaku Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipaku-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipaku Bogor \[Terdekat\]](/jual-bambu-steger-di-cipaku-bogor-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Panaragan Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini adalah tipe bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat jikalau digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Purworejo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-purworejo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Purworejo \[Terdekat\]](/jual-bambu-steger-di-purworejo-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Panaragan Bogor
 

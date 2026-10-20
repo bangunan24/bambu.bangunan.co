@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kelapa Dua Jakarta [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Kwitang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kwitang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kwitang Jakarta \[Terdekat\]](/jual-bambu-steger-di-kwitang-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kelapa Dua Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapatkan sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh tahan apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebumen \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebumen-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebumen \[Terdekat\]](/jual-bambu-steger-di-kebumen-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kelapa Dua Jakarta
 

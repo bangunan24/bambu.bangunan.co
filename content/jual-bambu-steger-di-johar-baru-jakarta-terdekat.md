@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Johar Baru Jakarta [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatinegara Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatinegara-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatinegara Jakarta \[Terdekat\]](/jual-bambu-steger-di-jatinegara-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Johar Baru Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapatkan sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat sekiranya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di PalMeriam Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-palmeriam-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di PalMeriam Jakarta \[Terdekat\]](/jual-bambu-steger-di-palmeriam-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Johar Baru Jakarta
 

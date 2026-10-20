@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Neglasari Tangerang [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipedak Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipedak-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipedak Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipedak-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Neglasari Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini amat kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pulo Gadung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pulo-gadung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pulo Gadung Jakarta \[Terdekat\]](/jual-bambu-steger-di-pulo-gadung-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Neglasari Tangerang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Krukut Depok [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Cihampelas \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cihampelas-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cihampelas \[Terdekat\]](/jual-bambu-steger-di-cihampelas-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Krukut Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh kuat jika diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Setiabudi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-setiabudi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Setiabudi Jakarta \[Terdekat\]](/jual-bambu-steger-di-setiabudi-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Krukut Depok
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Angke Jakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatiasih Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiasih-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiasih Bekasi \[Terdekat\]](/jual-bambu-steger-di-jatiasih-bekasi-terdekat/)
 
 ## Ragam Jenis Bambu dan Pemanfaatannya di Angke Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung, dengan warna hitam atau hijau kehitaman, memiliki ketebalan kurang
 
 Bambu kuning relatif sulit ditemukan karena tidak tumbuh di semua wilayah. Fungsinya juga kurang populer dibandingkan jenis bambu lainnya. Ciri khasnya adalah ukuran lingkaran yang kecil (5-8 cm), permukaan beruas-ruas, dan tinggi batang 4-10 cm dengan ketebalan mencapai 2 cm. Bambu kuning sering dianggap memiliki khasiat obat herbal untuk berbagai penyakit dan banyak digunakan sebagai tanaman hias, terutama dalam pot-pot di rumah karena warnanya yang artistik. Di perkampungan, bambu kuning sering digunakan sebagai pagar karena ketahanannya yang tinggi.
 
-**Lainnya:** [Jual Bambu Steger di Panaragan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-panaragan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Panaragan Bogor \[Terdekat\]](/jual-bambu-steger-di-panaragan-bogor-terdekat/)
 
 ## Dapatkan Bambu Berkualitas di Angke Jakarta
 

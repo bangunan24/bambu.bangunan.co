@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kademangan [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Legok Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-legok-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Legok Tangerang \[Terdekat\]](/jual-bambu-steger-di-legok-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kademangan
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini sangat kuat apabila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Melati Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-melati-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Melati Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-melati-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kademangan
 

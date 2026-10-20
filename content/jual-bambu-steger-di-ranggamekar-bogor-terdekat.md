@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ranggamekar Bogor [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Karanganyar \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karanganyar-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karanganyar \[Terdekat\]](/jual-bambu-steger-di-karanganyar-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ranggamekar Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni macam bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini amat tahan kalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mekarjaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarjaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarjaya Depok \[Terdekat\]](/jual-bambu-steger-di-mekarjaya-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ranggamekar Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Munjul Jakarta [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Margajaya Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-margajaya-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Margajaya Bogor \[Terdekat\]](/jual-bambu-steger-di-margajaya-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Munjul Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini benar-benar kuat kalau diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karawang \[Terdekat\]](/jual-bambu-steger-di-karawang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Munjul Jakarta
 

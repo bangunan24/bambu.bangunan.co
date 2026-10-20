@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bedahan Depok [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Kresek Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kresek-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kresek Tangerang \[Terdekat\]](/jual-bambu-steger-di-kresek-tangerang-terdekat/)
 
 ## Jenis dan Kegunaan Bambu yang Tersedia di Bedahan Depok
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki warna yang khas, yaitu hitam atau hijau kehitaman, bahkan 
 
 Bambu kuning tergolong sulit didapatkan karena tidak tumbuh di semua daerah. Fungsinya pun tidak sepopuler jenis bambu lainnya. Bambu ini memiliki diameter kecil (5-8 cm), permukaan beruas-ruas, dan tinggi 4-10 meter, namun dengan ketebalan yang cukup signifikan hingga 2 cm.  Bambu kuning dikenal memiliki khasiat obat herbal untuk berbagai penyakit, seperti infeksi dan hepatitis. Di era modern, bambu kuning sering digunakan sebagai tanaman hias, terutama dalam pot-pot rumah karena penampilannya yang unik dan artistik. Di daerah pedesaan, bambu kuning sering dimanfaatkan sebagai pagar karena ketahanannya yang lebih baik dibandingkan bambu lainnya. 
 
-**Lainnya:** [Jual Bambu Steger di Kedung Waringin Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-waringin-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Waringin Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-waringin-bogor-terdekat/)
 
 ## Dapatkan Bambu Terdekat di Bedahan Depok
 

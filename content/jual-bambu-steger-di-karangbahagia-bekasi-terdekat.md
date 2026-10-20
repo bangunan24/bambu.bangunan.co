@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karangbahagia Bekasi [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Teluknaga Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-teluknaga-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Teluknaga Tangerang \[Terdekat\]](/jual-bambu-steger-di-teluknaga-tangerang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Karangbahagia Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu macam bambu yang terbilang sulit untuk diperoleh karena memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini betul-betul tahan apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Batu Malang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batu-malang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batu Malang \[Terdekat\]](/jual-bambu-steger-di-batu-malang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Karangbahagia Bekasi
 

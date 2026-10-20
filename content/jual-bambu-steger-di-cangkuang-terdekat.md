@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cangkuang [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciganjur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciganjur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciganjur Jakarta \[Terdekat\]](/jual-bambu-steger-di-ciganjur-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Cangkuang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul kuat kalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sindang Barang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindang-barang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindang Barang Bogor \[Terdekat\]](/jual-bambu-steger-di-sindang-barang-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cangkuang
 

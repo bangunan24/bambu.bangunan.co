@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukamaju Depok [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Batujaya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batujaya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batujaya Karawang \[Terdekat\]](/jual-bambu-steger-di-batujaya-karawang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Sukamaju Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk didapatkan sebab memang tidak tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat sekiranya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tegalwaru Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegalwaru-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegalwaru Purwakarta \[Terdekat\]](/jual-bambu-steger-di-tegalwaru-purwakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Sukamaju Depok
 

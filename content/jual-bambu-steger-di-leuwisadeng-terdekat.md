@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Leuwisadeng [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Purwodadi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-purwodadi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Purwodadi \[Terdekat\]](/jual-bambu-steger-di-purwodadi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Leuwisadeng
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini betul-betul kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciparigi Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciparigi-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciparigi Bogor \[Terdekat\]](/jual-bambu-steger-di-ciparigi-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Leuwisadeng
 

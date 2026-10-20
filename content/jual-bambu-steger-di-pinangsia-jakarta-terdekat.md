@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pinangsia Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikarang Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikarang-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikarang Bekasi \[Terdekat\]](/jual-bambu-steger-di-cikarang-bekasi-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pinangsia Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah tipe bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Senen Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-senen-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Senen Jakarta \[Terdekat\]](/jual-bambu-steger-di-senen-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pinangsia Jakarta
 

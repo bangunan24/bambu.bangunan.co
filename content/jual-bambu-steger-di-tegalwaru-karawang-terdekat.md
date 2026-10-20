@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tegalwaru Karawang [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Tegalwaru Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegalwaru-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegalwaru Purwakarta \[Terdekat\]](/jual-bambu-steger-di-tegalwaru-purwakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tegalwaru Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk didapatkan karena memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini betul-betul tahan kalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Batujaya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batujaya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batujaya Karawang \[Terdekat\]](/jual-bambu-steger-di-batujaya-karawang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Tegalwaru Karawang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kampung Bali Jakarta [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Lawang Gintung Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lawang-gintung-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lawang Gintung Bogor \[Terdekat\]](/jual-bambu-steger-di-lawang-gintung-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kampung Bali Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini benar-benar kuat apabila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di KebonPala Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebonpala-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di KebonPala Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebonpala-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kampung Bali Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Campaka Purwakarta [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Tanah Abang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanah-abang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanah Abang Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanah-abang-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Campaka Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini benar-benar tahan apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojongmangu Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojongmangu-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojongmangu Bekasi \[Terdekat\]](/jual-bambu-steger-di-bojongmangu-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Campaka Purwakarta
 

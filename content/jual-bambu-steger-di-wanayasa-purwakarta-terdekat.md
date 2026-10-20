@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Wanayasa Purwakarta [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibuluh Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibuluh-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibuluh Bogor \[Terdekat\]](/jual-bambu-steger-di-cibuluh-bogor-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Wanayasa Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapatkan sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini benar-benar tahan kalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sindangsari Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindangsari-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindangsari Bogor \[Terdekat\]](/jual-bambu-steger-di-sindangsari-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Wanayasa Purwakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibuluh Bogor [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Loji Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-loji-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Loji Bogor \[Terdekat\]](/jual-bambu-steger-di-loji-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Cibuluh Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini betul-betul tahan kalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebomas \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebomas-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebomas \[Terdekat\]](/jual-bambu-steger-di-kebomas-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cibuluh Bogor
 

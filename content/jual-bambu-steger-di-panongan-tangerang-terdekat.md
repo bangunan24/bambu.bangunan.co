@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Panongan Tangerang [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Karangwage \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangwage-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangwage \[Terdekat\]](/jual-bambu-steger-di-karangwage-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Panongan Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini amat tahan seandainya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Matraman Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-matraman-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Matraman Jakarta \[Terdekat\]](/jual-bambu-steger-di-matraman-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Panongan Tangerang
 

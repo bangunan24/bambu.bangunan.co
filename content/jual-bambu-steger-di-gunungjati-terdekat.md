@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gunungjati [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Slipi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-slipi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Slipi Jakarta \[Terdekat\]](/jual-bambu-steger-di-slipi-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Gunungjati
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sangat kuat bila dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cibogor Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibogor-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibogor Bogor \[Terdekat\]](/jual-bambu-steger-di-cibogor-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Gunungjati
 

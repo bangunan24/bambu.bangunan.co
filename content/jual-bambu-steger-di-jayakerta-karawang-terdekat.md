@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jayakerta Karawang [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Cinangka Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cinangka-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cinangka Depok \[Terdekat\]](/jual-bambu-steger-di-cinangka-depok-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Jayakerta Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini amat tahan bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rambutan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rambutan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rambutan Jakarta \[Terdekat\]](/jual-bambu-steger-di-rambutan-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Jayakerta Karawang
 

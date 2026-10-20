@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Situ Gede Bogor [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Cilangkap Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilangkap-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilangkap Jakarta \[Terdekat\]](/jual-bambu-steger-di-cilangkap-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Situ Gede Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini amat kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rorotan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rorotan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rorotan Jakarta \[Terdekat\]](/jual-bambu-steger-di-rorotan-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Situ Gede Bogor
 

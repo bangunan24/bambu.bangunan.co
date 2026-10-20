@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Petojo Jakarta [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Semplak Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-semplak-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Semplak Bogor \[Terdekat\]](/jual-bambu-steger-di-semplak-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Petojo Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat sekiranya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikini Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikini-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikini Jakarta \[Terdekat\]](/jual-bambu-steger-di-cikini-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Petojo Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Soreang [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Tulungagung \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tulungagung-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tulungagung \[Terdekat\]](/jual-bambu-steger-di-tulungagung-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Soreang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bangka Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bangka-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bangka Jakarta \[Terdekat\]](/jual-bambu-steger-di-bangka-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Soreang
 

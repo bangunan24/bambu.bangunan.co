@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipete Jakarta [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Cilacap \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilacap-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilacap \[Terdekat\]](/jual-bambu-steger-di-cilacap-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cipete Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk diperoleh karena memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini sangat tahan apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sawah Besar Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sawah-besar-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sawah Besar Jakarta \[Terdekat\]](/jual-bambu-steger-di-sawah-besar-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cipete Jakarta
 

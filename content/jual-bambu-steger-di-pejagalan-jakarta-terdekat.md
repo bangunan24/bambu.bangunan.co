@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pejagalan Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Jayakerta Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jayakerta-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jayakerta Karawang \[Terdekat\]](/jual-bambu-steger-di-jayakerta-karawang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Pejagalan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat jika digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Padalarang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-padalarang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Padalarang \[Terdekat\]](/jual-bambu-steger-di-padalarang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pejagalan Jakarta
 

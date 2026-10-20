@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bubulak Bogor [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Kukusan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kukusan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kukusan Depok \[Terdekat\]](/jual-bambu-steger-di-kukusan-depok-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Bubulak Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk diperoleh karena memang tidak tumbuh di semua daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini sangat kuat kalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kedoya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedoya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedoya Jakarta \[Terdekat\]](/jual-bambu-steger-di-kedoya-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Bubulak Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Aren Tangerang [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipondoh Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipondoh-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipondoh Tangerang \[Terdekat\]](/jual-bambu-steger-di-cipondoh-tangerang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Pondok Aren Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini betul-betul tahan bila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Salam Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-salam-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Salam Purwakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-salam-purwakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pondok Aren Tangerang
 

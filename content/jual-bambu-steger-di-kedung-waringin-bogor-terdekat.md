@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kedung Waringin Bogor [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Ponorogo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ponorogo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ponorogo \[Terdekat\]](/jual-bambu-steger-di-ponorogo-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kedung Waringin Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar tahan kalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipinang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipinang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipinang Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipinang-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kedung Waringin Bogor
 

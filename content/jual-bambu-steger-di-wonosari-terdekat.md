@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Wonosari [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukakarya Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukakarya-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukakarya Bekasi \[Terdekat\]](/jual-bambu-steger-di-sukakarya-bekasi-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Wonosari
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni macam bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini amat kuat jikalau dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cibarusah Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibarusah-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibarusah Bekasi \[Terdekat\]](/jual-bambu-steger-di-cibarusah-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Wonosari
 

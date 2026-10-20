@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatiroto [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Sragen \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sragen-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sragen \[Terdekat\]](/jual-bambu-steger-di-sragen-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Jatiroto
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini benar-benar kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cibitung Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibitung-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibitung Bekasi \[Terdekat\]](/jual-bambu-steger-di-cibitung-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Jatiroto
 

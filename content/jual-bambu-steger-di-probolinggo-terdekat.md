@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Probolinggo [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Cijantung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cijantung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cijantung Jakarta \[Terdekat\]](/jual-bambu-steger-di-cijantung-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Probolinggo
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini betul-betul tahan jikalau diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Serua Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serua-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serua Depok \[Terdekat\]](/jual-bambu-steger-di-serua-depok-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Probolinggo
 

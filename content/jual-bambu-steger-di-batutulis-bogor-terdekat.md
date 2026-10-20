@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Batutulis Bogor [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Petamburan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-petamburan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Petamburan Jakarta \[Terdekat\]](/jual-bambu-steger-di-petamburan-jakarta-terdekat/)
 
 ## Mengenal Berbagai Jenis Bambu dan Kegunaannya di Batutulis Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan ada yan
 
 Bambu kuning tergolong sulit ditemukan karena tidak tumbuh di semua daerah. Jenis bambu ini kurang populer dalam konstruksi umum, tetapi memiliki banyak manfaat lain. Ciri-cirinya adalah diameter yang kecil (5-8 cm), permukaan beruas-ruas, dan tinggi batang 4-10 cm dengan ketebalan mencapai 2 cm. Bambu kuning dikenal sebagai tanaman obat herbal untuk berbagai penyakit, seperti infeksi dan gangguan organ dalam. Di perkotaan, bambu kuning sering ditanam sebagai tanaman hias, terutama dalam pot karena bentuknya yang unik dan artistik. Di pedesaan, bambu kuning digunakan sebagai bahan pagar yang tahan lama dan kuat. 
 
-**Lainnya:** [Jual Bambu Steger di Duren Tiga Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-duren-tiga-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Duren Tiga Jakarta \[Terdekat\]](/jual-bambu-steger-di-duren-tiga-jakarta-terdekat/)
 
 ## Dapatkan Bambu Berkualitas Terdekat di Batutulis Bogor
 

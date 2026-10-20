@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Trenggalek [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Cilandak Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilandak-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilandak Jakarta \[Terdekat\]](/jual-bambu-steger-di-cilandak-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Trenggalek
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sangat tahan apabila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rumpin \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rumpin-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rumpin \[Terdekat\]](/jual-bambu-steger-di-rumpin-terdekat/)
 
 ## Penjual Bambu Terdekat Di Trenggalek
 

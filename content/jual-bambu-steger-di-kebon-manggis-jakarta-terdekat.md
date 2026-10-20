@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebon Manggis Jakarta [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Bambu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-bambu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Bambu Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-bambu-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Kebon Manggis Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapatkan sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Citeureup \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-citeureup-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Citeureup \[Terdekat\]](/jual-bambu-steger-di-citeureup-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kebon Manggis Jakarta
 

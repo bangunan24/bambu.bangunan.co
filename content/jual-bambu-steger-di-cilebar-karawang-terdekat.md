@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilebar Karawang [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Tirtajaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tirtajaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tirtajaya Depok \[Terdekat\]](/jual-bambu-steger-di-tirtajaya-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cilebar Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini betul-betul kuat kalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Banyusari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-banyusari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Banyusari Karawang \[Terdekat\]](/jual-bambu-steger-di-banyusari-karawang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cilebar Karawang
 

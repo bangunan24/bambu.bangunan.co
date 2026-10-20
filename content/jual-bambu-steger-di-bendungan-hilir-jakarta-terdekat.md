@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bendungan Hilir Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Cigombong \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cigombong-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cigombong \[Terdekat\]](/jual-bambu-steger-di-cigombong-terdekat/)
 
 ## Mengenal Berbagai Jenis Bambu dan Kegunaannya di Bendungan Hilir Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki warna unik, yaitu hitam atau hijau kehitaman, bahkan ada y
 
 Bambu kuning relatif sulit ditemukan karena tidak tumbuh di semua wilayah. Bambu ini juga memiliki fungsi yang lebih spesifik dibandingkan jenis bambu lainnya. Ciri-cirinya adalah ukuran bulatnya yang kecil (5-8 cm), permukaan beruas-ruas, dan tinggi batang yang tidak terlalu tinggi (4-10 m). Meskipun demikian, bambu kuning memiliki ketebalan yang cukup signifikan, mencapai sekitar 2 cm. Bambu kuning dikenal sebagai salah satu jenis bambu yang dapat dibudidayakan, dicangkok, dan dipercaya memiliki khasiat obat herbal untuk berbagai penyakit seperti infeksi dan hepatitis. Bambu ini sering digunakan sebagai tanaman hias, terutama di rumah-rumah minimalis, dengan menanamnya dalam pot-pot kecil karena tampilannya yang unik dan artistik. Di perkampungan, bambu kuning juga digunakan sebagai pagar karena memiliki ketahanan yang lebih baik dibandingkan jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Setu Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-setu-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Setu Bekasi \[Terdekat\]](/jual-bambu-steger-di-setu-bekasi-terdekat/)
 
 ## Dapatkan Bambu Terbaik dari Penjual Terdekat di Bendungan Hilir Jakarta
 

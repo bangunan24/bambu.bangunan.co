@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rangkapan Jaya Depok [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Melati Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-melati-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Melati Bekasi \[Terdekat\]](/jual-bambu-steger-di-pondok-melati-bekasi-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Rangkapan Jaya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini amat kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciputat Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciputat-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciputat Tangerang \[Terdekat\]](/jual-bambu-steger-di-ciputat-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Rangkapan Jaya Depok
 

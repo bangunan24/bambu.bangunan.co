@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Galaxi Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Pati \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pati-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pati \[Terdekat\]](/jual-bambu-steger-di-pati-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Galaxi Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh tahan apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Guntur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-guntur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Guntur Jakarta \[Terdekat\]](/jual-bambu-steger-di-guntur-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Galaxi Jakarta
 

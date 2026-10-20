@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Dukuhturi [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Kotabaru Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kotabaru-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kotabaru Karawang \[Terdekat\]](/jual-bambu-steger-di-kotabaru-karawang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Dukuhturi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapatkan karena memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini betul-betul kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kemayoran Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemayoran-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemayoran Jakarta \[Terdekat\]](/jual-bambu-steger-di-kemayoran-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Dukuhturi
 

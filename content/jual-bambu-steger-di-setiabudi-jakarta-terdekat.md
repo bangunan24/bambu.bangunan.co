@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Setiabudi Jakarta [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Manggis Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-manggis-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Manggis Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-manggis-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Setiabudi Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini benar-benar kuat sekiranya digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Lemahabang Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lemahabang-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lemahabang Karawang \[Terdekat\]](/jual-bambu-steger-di-lemahabang-karawang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Setiabudi Jakarta
 

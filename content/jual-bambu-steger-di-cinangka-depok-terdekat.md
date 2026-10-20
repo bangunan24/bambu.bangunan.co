@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cinangka Depok [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Panongan Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-panongan-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Panongan Tangerang \[Terdekat\]](/jual-bambu-steger-di-panongan-tangerang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cinangka Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini amat kuat seandainya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jagakarsa Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jagakarsa-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jagakarsa Jakarta \[Terdekat\]](/jual-bambu-steger-di-jagakarsa-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cinangka Depok
 

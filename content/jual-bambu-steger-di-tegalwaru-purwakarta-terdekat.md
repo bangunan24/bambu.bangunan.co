@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tegalwaru Purwakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Kelapa Dua Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kelapa-dua-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kelapa Dua Tangerang \[Terdekat\]](/jual-bambu-steger-di-kelapa-dua-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Tegalwaru Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini amat tahan jika dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di KramatPela Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kramatpela-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di KramatPela Jakarta \[Terdekat\]](/jual-bambu-steger-di-kramatpela-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Tegalwaru Purwakarta
 

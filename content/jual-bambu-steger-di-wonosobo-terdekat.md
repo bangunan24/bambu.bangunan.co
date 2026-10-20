@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Wonosobo [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Harapan Mulya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-harapan-mulya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Harapan Mulya Jakarta \[Terdekat\]](/jual-bambu-steger-di-harapan-mulya-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Wonosobo
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk didapatkan karena memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sungguh-sungguh kuat apabila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pasar Baru Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasar-baru-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasar Baru Jakarta \[Terdekat\]](/jual-bambu-steger-di-pasar-baru-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Wonosobo
 

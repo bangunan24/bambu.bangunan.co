@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipeundeuy [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Grogol Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-grogol-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Grogol Jakarta \[Terdekat\]](/jual-bambu-steger-di-grogol-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cipeundeuy
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapat karena memang tidak tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini amat kuat bila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pebayuran Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pebayuran-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pebayuran Bekasi \[Terdekat\]](/jual-bambu-steger-di-pebayuran-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cipeundeuy
 

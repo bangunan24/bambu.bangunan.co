@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kertamaya Bogor [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Cina Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-cina-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Cina Depok \[Terdekat\]](/jual-bambu-steger-di-pondok-cina-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Kertamaya Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini benar-benar kuat jikalau dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cisoka Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisoka-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisoka Tangerang \[Terdekat\]](/jual-bambu-steger-di-cisoka-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kertamaya Bogor
 

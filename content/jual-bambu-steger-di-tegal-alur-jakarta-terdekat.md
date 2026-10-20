@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tegal Alur Jakarta [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Kosambi Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kosambi-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kosambi Tangerang \[Terdekat\]](/jual-bambu-steger-di-kosambi-tangerang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Tegal Alur Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini betul-betul tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kemiri Muka Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemiri-muka-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemiri Muka Depok \[Terdekat\]](/jual-bambu-steger-di-kemiri-muka-depok-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tegal Alur Jakarta
 

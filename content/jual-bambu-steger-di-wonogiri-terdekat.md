@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Wonogiri [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Manggarai Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-manggarai-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Manggarai Jakarta \[Terdekat\]](/jual-bambu-steger-di-manggarai-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Wonogiri
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini sangat kuat bila dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kartini Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kartini-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kartini Jakarta \[Terdekat\]](/jual-bambu-steger-di-kartini-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Wonogiri
 

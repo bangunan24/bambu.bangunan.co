@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Prabumulih [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Tanjung Duren Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanjung-duren-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanjung Duren Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanjung-duren-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Prabumulih
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini benar-benar kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojonegoro \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojonegoro-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojonegoro \[Terdekat\]](/jual-bambu-steger-di-bojonegoro-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Prabumulih
 

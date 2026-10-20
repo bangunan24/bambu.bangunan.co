@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebumen [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Cangkuang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cangkuang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cangkuang \[Terdekat\]](/jual-bambu-steger-di-cangkuang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kebumen
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapatkan sebab memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukatani Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukatani-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukatani Bekasi \[Terdekat\]](/jual-bambu-steger-di-sukatani-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kebumen
 

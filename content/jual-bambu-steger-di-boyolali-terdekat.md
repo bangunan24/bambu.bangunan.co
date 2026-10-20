@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Boyolali [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Paseban Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-paseban-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Paseban Jakarta \[Terdekat\]](/jual-bambu-steger-di-paseban-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Boyolali
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini sungguh-sungguh tahan jikalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gunung Sahari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunung-sahari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunung Sahari Jakarta \[Terdekat\]](/jual-bambu-steger-di-gunung-sahari-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Boyolali
 

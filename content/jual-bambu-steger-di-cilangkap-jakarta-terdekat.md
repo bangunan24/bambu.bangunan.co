@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilangkap Jakarta [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Kamal Muara Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kamal-muara-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kamal Muara Jakarta \[Terdekat\]](/jual-bambu-steger-di-kamal-muara-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cilangkap Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini benar-benar kuat bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Meruya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-meruya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Meruya Jakarta \[Terdekat\]](/jual-bambu-steger-di-meruya-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cilangkap Jakarta
 

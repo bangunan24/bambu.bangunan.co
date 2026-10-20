@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Leuwiliang [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Rorotan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rorotan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rorotan Jakarta \[Terdekat\]](/jual-bambu-steger-di-rorotan-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Leuwiliang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini benar-benar kuat seandainya digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilangkap Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilangkap-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilangkap Jakarta \[Terdekat\]](/jual-bambu-steger-di-cilangkap-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Leuwiliang
 

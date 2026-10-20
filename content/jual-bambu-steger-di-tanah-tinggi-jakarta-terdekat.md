@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tanah Tinggi Jakarta [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Jaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-jaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Jaya Depok \[Terdekat\]](/jual-bambu-steger-di-pondok-jaya-depok-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Tanah Tinggi Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini benar-benar kuat apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cisauk Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisauk-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisauk Tangerang \[Terdekat\]](/jual-bambu-steger-di-cisauk-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Tanah Tinggi Jakarta
 

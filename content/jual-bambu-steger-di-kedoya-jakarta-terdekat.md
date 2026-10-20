@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kedoya Jakarta [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawamangun Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawamangun-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawamangun Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawamangun-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kedoya Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat jika diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cileunyi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cileunyi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cileunyi \[Terdekat\]](/jual-bambu-steger-di-cileunyi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kedoya Jakarta
 

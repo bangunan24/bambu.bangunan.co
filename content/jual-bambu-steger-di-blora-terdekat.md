@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Blora [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Temanggung \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-temanggung-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Temanggung \[Terdekat\]](/jual-bambu-steger-di-temanggung-terdekat/)
 
 ## Mengenal Jenis-Jenis Bambu dan Kegunaannya di Blora
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan terkada
 
 Bambu kuning termasuk jenis yang sulit ditemukan karena tidak tumbuh di semua wilayah. Jenis ini kurang umum digunakan oleh masyarakat umum, namun memiliki potensi yang menarik. Bambu ini memiliki lingkaran kecil (5-8 cm), permukaan beruas-ruas, dan tinggi sekitar 4-10 meter dengan ketebalan yang signifikan, mencapai 2 cm. Bambu kuning dikenal akan khasiat obatnya, dipercaya dapat mengatasi berbagai penyakit seperti infeksi dan hepatitis. Selain itu, bambu kuning sering digunakan sebagai tanaman hias di rumah-rumah minimalis, khususnya dalam pot-pot berukuran kecil. Di pedesaan, bambu kuning sering dimanfaatkan sebagai bahan pagar karena ketahanannya yang lebih tinggi dibandingkan jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Batu Ampar Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batu-ampar-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batu Ampar Jakarta \[Terdekat\]](/jual-bambu-steger-di-batu-ampar-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat di Blora
 

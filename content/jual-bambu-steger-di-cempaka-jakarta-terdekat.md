@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cempaka Jakarta [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Munjul Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-munjul-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Munjul Jakarta \[Terdekat\]](/jual-bambu-steger-di-munjul-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cempaka Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang susah untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh tahan jika diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalianyar Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalianyar-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalianyar Jakarta \[Terdekat\]](/jual-bambu-steger-di-kalianyar-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cempaka Jakarta
 

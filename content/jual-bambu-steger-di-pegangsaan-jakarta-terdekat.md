@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pegangsaan Jakarta [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Baranangsiang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-baranangsiang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Baranangsiang Bogor \[Terdekat\]](/jual-bambu-steger-di-baranangsiang-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Pegangsaan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini amat kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tigaraksa Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tigaraksa-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tigaraksa Tangerang \[Terdekat\]](/jual-bambu-steger-di-tigaraksa-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pegangsaan Jakarta
 

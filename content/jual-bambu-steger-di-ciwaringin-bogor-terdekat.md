@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciwaringin Bogor [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibatu Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibatu-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibatu Purwakarta \[Terdekat\]](/jual-bambu-steger-di-cibatu-purwakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Ciwaringin Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk diperoleh karena memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini betul-betul tahan bila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukadiri Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukadiri-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukadiri Tangerang \[Terdekat\]](/jual-bambu-steger-di-sukadiri-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Ciwaringin Bogor
 

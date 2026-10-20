@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Joglo Jakarta [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Pesanggrahan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pesanggrahan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pesanggrahan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pesanggrahan-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Joglo Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sangat kuat jika diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Duri Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-duri-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Duri Jakarta \[Terdekat\]](/jual-bambu-steger-di-duri-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Joglo Jakarta
 

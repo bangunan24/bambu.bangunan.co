@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Margajaya Bogor [Terdekat]](/images/jual-bambu-tali-29.png)
 
-**Lainnya:** [Jual Bambu Steger di Kediri \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kediri-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kediri \[Terdekat\]](/jual-bambu-steger-di-kediri-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Margajaya Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini amat kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kuningan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kuningan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kuningan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kuningan-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Margajaya Bogor
 

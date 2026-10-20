@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilodong Depok [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Muntilan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-muntilan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Muntilan \[Terdekat\]](/jual-bambu-steger-di-muntilan-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cilodong Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk diperoleh sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini amat kuat bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kademangan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kademangan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kademangan \[Terdekat\]](/jual-bambu-steger-di-kademangan-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cilodong Depok
 

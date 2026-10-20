@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bungursari Purwakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipinang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipinang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipinang Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipinang-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Bungursari Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini sangat kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ponorogo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ponorogo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ponorogo \[Terdekat\]](/jual-bambu-steger-di-ponorogo-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Bungursari Purwakarta
 

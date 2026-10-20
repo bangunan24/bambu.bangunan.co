@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Padaherang [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatisari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatisari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatisari Karawang \[Terdekat\]](/jual-bambu-steger-di-jatisari-karawang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Padaherang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutama di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pakuhaji Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pakuhaji-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pakuhaji Tangerang \[Terdekat\]](/jual-bambu-steger-di-pakuhaji-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Padaherang
 

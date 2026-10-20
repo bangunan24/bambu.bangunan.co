@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cisauk Tangerang [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Kademangan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kademangan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kademangan \[Terdekat\]](/jual-bambu-steger-di-kademangan-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cisauk Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini sangat tahan bila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Muntilan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-muntilan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Muntilan \[Terdekat\]](/jual-bambu-steger-di-muntilan-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cisauk Tangerang
 

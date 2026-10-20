@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jasinga [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Rangkapan Jaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rangkapan-jaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rangkapan Jaya Depok \[Terdekat\]](/jual-bambu-steger-di-rangkapan-jaya-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Jasinga
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini betul-betul tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cimahpar Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimahpar-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimahpar Bogor \[Terdekat\]](/jual-bambu-steger-di-cimahpar-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Jasinga
 

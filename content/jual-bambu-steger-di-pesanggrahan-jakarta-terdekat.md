@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pesanggrahan Jakarta [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Maniis Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-maniis-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Maniis Purwakarta \[Terdekat\]](/jual-bambu-steger-di-maniis-purwakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pesanggrahan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini betul-betul tahan apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karet Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karet-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karet Jakarta \[Terdekat\]](/jual-bambu-steger-di-karet-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Pesanggrahan Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ulujami Jakarta [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Pejagalan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pejagalan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pejagalan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pejagalan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Ulujami Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini betul-betul tahan jika diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Genteng Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-genteng-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Genteng Bogor \[Terdekat\]](/jual-bambu-steger-di-genteng-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Ulujami Jakarta
 

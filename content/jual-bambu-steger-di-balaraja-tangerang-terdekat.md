@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Balaraja Tangerang [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Bojong Gede \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojong-gede-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojong Gede \[Terdekat\]](/jual-bambu-steger-di-bojong-gede-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya di Balaraja Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki warna unik, yaitu hitam atau hijau kehitaman, bahkan ada y
 
 Bambu kuning relatif sulit didapatkan karena tidak tumbuh di semua daerah dan penggunaannya tidak terlalu luas. Diameter bambu ini sekitar 5 hingga 8 cm, dengan tinggi batang 4 hingga 10 meter dan ketebalan hingga 2 cm. Bambu kuning dikenal memiliki khasiat obat herbal untuk berbagai penyakit, seperti infeksi dan hepatitis. Di perkotaan, bambu kuning sering digunakan sebagai tanaman hias, bahkan ditanam dalam pot-pot kecil. Di pedesaan, bambu kuning populer sebagai bahan pagar karena ketahanannya yang lebih tinggi dibandingkan jenis bambu lainnya. 
 
-**Lainnya:** [Jual Bambu Steger di Tanah Tinggi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanah-tinggi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanah Tinggi Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanah-tinggi-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat di Balaraja Tangerang
 

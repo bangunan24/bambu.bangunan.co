@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sawangan Depok [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciputat Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciputat-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciputat Tangerang \[Terdekat\]](/jual-bambu-steger-di-ciputat-tangerang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Sawangan Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini amat kuat jika diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Melati Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-melati-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Melati Bekasi \[Terdekat\]](/jual-bambu-steger-di-pondok-melati-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sawangan Depok
 

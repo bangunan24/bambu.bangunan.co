@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kayu Putih Jakarta [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikande \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikande-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikande \[Terdekat\]](/jual-bambu-steger-di-cikande-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kayu Putih Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar tahan bila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Serang Baru Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serang-baru-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serang Baru Bekasi \[Terdekat\]](/jual-bambu-steger-di-serang-baru-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kayu Putih Jakarta
 

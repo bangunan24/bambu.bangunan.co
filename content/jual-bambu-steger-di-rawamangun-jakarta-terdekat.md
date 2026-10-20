@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rawamangun Jakarta [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Jagakarsa Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jagakarsa-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jagakarsa Jakarta \[Terdekat\]](/jual-bambu-steger-di-jagakarsa-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Rawamangun Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh tahan jikalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Panongan Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-panongan-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Panongan Tangerang \[Terdekat\]](/jual-bambu-steger-di-panongan-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Rawamangun Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kediri [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Nagreg \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-nagreg-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Nagreg \[Terdekat\]](/jual-bambu-steger-di-nagreg-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Kediri
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sangat kuat jika dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Johar Baru Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-johar-baru-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Johar Baru Jakarta \[Terdekat\]](/jual-bambu-steger-di-johar-baru-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kediri
 

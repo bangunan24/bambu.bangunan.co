@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di PalMeriam Jakarta [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatijajar Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatijajar-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatijajar Depok \[Terdekat\]](/jual-bambu-steger-di-jatijajar-depok-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di PalMeriam Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu macam bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini betul-betul tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pamulang Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pamulang-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pamulang Tangerang \[Terdekat\]](/jual-bambu-steger-di-pamulang-tangerang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di PalMeriam Jakarta
 

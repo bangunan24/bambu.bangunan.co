@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipatat [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Pemalang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pemalang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pemalang \[Terdekat\]](/jual-bambu-steger-di-pemalang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cipatat
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini amat kuat jika digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gandul Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gandul-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gandul Depok \[Terdekat\]](/jual-bambu-steger-di-gandul-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cipatat
 

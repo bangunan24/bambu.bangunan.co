@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kedung Badak Bogor [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Tanjung Priok Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanjung-priok-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanjung Priok Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanjung-priok-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kedung Badak Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yg terbilang susah untuk diperoleh karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh tahan sekiranya dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Blora \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-blora-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Blora \[Terdekat\]](/jual-bambu-steger-di-blora-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kedung Badak Bogor
 

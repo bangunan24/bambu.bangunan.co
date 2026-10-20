@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebon Jeruk Jakarta [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Pedes Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-pedes-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Pedes Bogor \[Terdekat\]](/jual-bambu-steger-di-kebon-pedes-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kebon Jeruk Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh tahan bila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Lebak Bulus Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lebak-bulus-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lebak Bulus Jakarta \[Terdekat\]](/jual-bambu-steger-di-lebak-bulus-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kebon Jeruk Jakarta
 

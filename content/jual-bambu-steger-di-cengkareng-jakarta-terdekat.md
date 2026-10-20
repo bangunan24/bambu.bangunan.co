@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cengkareng Jakarta [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Pasir Kuda Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasir-kuda-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasir Kuda Bogor \[Terdekat\]](/jual-bambu-steger-di-pasir-kuda-bogor-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cengkareng Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini benar-benar tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gunung Batu Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunung-batu-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunung Batu Bogor \[Terdekat\]](/jual-bambu-steger-di-gunung-batu-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cengkareng Jakarta
 

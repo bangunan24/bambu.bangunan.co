@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Lemahabang Karawang [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukaluyu \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukaluyu-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukaluyu \[Terdekat\]](/jual-bambu-steger-di-sukaluyu-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Lemahabang Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sangat kuat apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cibadak Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibadak-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibadak Bogor \[Terdekat\]](/jual-bambu-steger-di-cibadak-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Lemahabang Karawang
 

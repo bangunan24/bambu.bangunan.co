@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Genteng Bogor [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Gelora Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gelora-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gelora Jakarta \[Terdekat\]](/jual-bambu-steger-di-gelora-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Genteng Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan jikalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pejaten Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pejaten-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pejaten Jakarta \[Terdekat\]](/jual-bambu-steger-di-pejaten-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Genteng Bogor
 

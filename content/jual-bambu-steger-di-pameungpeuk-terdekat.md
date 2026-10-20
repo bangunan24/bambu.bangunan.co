@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pameungpeuk [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Klaten \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-klaten-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Klaten \[Terdekat\]](/jual-bambu-steger-di-klaten-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pameungpeuk
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini umum diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini benar-benar kuat seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kencana Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kencana-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kencana Bogor \[Terdekat\]](/jual-bambu-steger-di-kencana-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pameungpeuk
 

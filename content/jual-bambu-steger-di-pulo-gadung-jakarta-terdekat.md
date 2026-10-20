@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pulo Gadung Jakarta [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Nganjuk \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-nganjuk-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Nganjuk \[Terdekat\]](/jual-bambu-steger-di-nganjuk-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Pulo Gadung Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini sangat tahan jikalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jember \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jember-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jember \[Terdekat\]](/jual-bambu-steger-di-jember-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pulo Gadung Jakarta
 

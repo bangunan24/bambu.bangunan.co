@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pakisjaya Karawang [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Medan Satria Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-medan-satria-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Medan Satria Bekasi \[Terdekat\]](/jual-bambu-steger-di-medan-satria-bekasi-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pakisjaya Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh kuat bila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karangmalang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangmalang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangmalang \[Terdekat\]](/jual-bambu-steger-di-karangmalang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Pakisjaya Karawang
 

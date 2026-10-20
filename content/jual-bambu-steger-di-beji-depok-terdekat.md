@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Beji Depok [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatimulya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatimulya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatimulya Depok \[Terdekat\]](/jual-bambu-steger-di-jatimulya-depok-terdekat/)
 
 ## Mengenal Berbagai Jenis Bambu dan Kegunaannya di Beji Depok
 
@@ -37,7 +37,7 @@ Bambu wulung mudah dikenali dari warnanya yang khas: hitam, hijau kehitaman, ata
 
 Bambu kuning lebih sulit ditemukan karena tidak tumbuh di seluruh wilayah. Bambu ini memiliki diameter kecil (5-8 cm), ruas-ruas yang jelas, dan tinggi 4-10 meter, namun dindingnya sangat tebal (hingga 2 cm). Beberapa orang percaya bambu kuning memiliki khasiat obat herbal untuk berbagai penyakit. Selain itu, bambu kuning sering digunakan sebagai tanaman hias, terutama di taman-taman minimalis, dan sebagai bahan pagar yang tahan lama. Ketahanan ekstra ini membuatnya ideal untuk pagar rumah yang awet dan sulit dirusak. Di Beji Depok, Anda dapat menemukan berbagai jenis bambu ini untuk memenuhi kebutuhan proyek Anda.
 
-**Lainnya:** [Jual Bambu Steger di Pameungpeuk \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pameungpeuk-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pameungpeuk \[Terdekat\]](/jual-bambu-steger-di-pameungpeuk-terdekat/)
 
 ## Mengapa Memilih Supplier Bambu Terpercaya di Beji Depok?
 

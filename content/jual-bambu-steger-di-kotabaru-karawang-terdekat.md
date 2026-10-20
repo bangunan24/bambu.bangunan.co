@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kotabaru Karawang [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Klender Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-klender-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Klender Jakarta \[Terdekat\]](/jual-bambu-steger-di-klender-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kotabaru Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk didapatkan sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini betul-betul kuat apabila digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kenari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kenari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kenari Jakarta \[Terdekat\]](/jual-bambu-steger-di-kenari-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kotabaru Karawang
 

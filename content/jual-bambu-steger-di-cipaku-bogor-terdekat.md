@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipaku Bogor [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebagusan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebagusan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebagusan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebagusan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cipaku Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Lumajang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lumajang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lumajang \[Terdekat\]](/jual-bambu-steger-di-lumajang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cipaku Bogor
 

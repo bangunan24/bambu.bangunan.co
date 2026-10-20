@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rorotan Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Joglo Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-joglo-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Joglo Jakarta \[Terdekat\]](/jual-bambu-steger-di-joglo-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Rorotan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Neglasari Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-neglasari-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Neglasari Tangerang \[Terdekat\]](/jual-bambu-steger-di-neglasari-tangerang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Rorotan Jakarta
 

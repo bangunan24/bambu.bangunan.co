@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ponorogo [Terdekat]](/images/jual-bambu-tali-39.png)
 
-**Lainnya:** [Jual Bambu Steger di Pakuan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pakuan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pakuan Bogor \[Terdekat\]](/jual-bambu-steger-di-pakuan-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ponorogo
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini benar-benar tahan jikalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatiuwung Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiuwung-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiuwung Tangerang \[Terdekat\]](/jual-bambu-steger-di-jatiuwung-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ponorogo
 

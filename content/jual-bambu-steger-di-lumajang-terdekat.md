@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Lumajang [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Ratu Jaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ratu-jaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ratu Jaya Depok \[Terdekat\]](/jual-bambu-steger-di-ratu-jaya-depok-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Lumajang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sangat kuat jikalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cimahi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimahi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimahi \[Terdekat\]](/jual-bambu-steger-di-cimahi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Lumajang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Harjamukti Depok [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Ancol Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ancol-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ancol Jakarta \[Terdekat\]](/jual-bambu-steger-di-ancol-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Harjamukti Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Wonosobo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wonosobo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wonosobo \[Terdekat\]](/jual-bambu-steger-di-wonosobo-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Harjamukti Depok
 

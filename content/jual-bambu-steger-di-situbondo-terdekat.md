@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Situbondo [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Kedaung Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedaung-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedaung Depok \[Terdekat\]](/jual-bambu-steger-di-kedaung-depok-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Situbondo
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapatkan sebab memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini benar-benar kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kutawaluya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kutawaluya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kutawaluya Karawang \[Terdekat\]](/jual-bambu-steger-di-kutawaluya-karawang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Situbondo
 

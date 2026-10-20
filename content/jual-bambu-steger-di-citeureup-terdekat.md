@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Citeureup [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Gambir Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gambir-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gambir Jakarta \[Terdekat\]](/jual-bambu-steger-di-gambir-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Citeureup
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu macam bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini amat tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pengasinan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pengasinan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pengasinan Depok \[Terdekat\]](/jual-bambu-steger-di-pengasinan-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Citeureup
 

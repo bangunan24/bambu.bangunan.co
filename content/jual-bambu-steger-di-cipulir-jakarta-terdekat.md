@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipulir Jakarta [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Utan Kayu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-utan-kayu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Utan Kayu Jakarta \[Terdekat\]](/jual-bambu-steger-di-utan-kayu-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cipulir Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu macam bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini sungguh-sungguh tahan sekiranya diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Balumbang Jaya Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-balumbang-jaya-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Balumbang Jaya Bogor \[Terdekat\]](/jual-bambu-steger-di-balumbang-jaya-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cipulir Jakarta
 

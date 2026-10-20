@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ancol Jakarta [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Bojong Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojong-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojong Purwakarta \[Terdekat\]](/jual-bambu-steger-di-bojong-purwakarta-terdekat/)
 
 ## Mengenal Jenis Bambu dan Kegunaannya di Ancol Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan ada yan
 
 Bambu kuning tergolong sulit ditemukan karena tidak tumbuh di semua wilayah. Bambu ini memiliki diameter kecil (5-8 cm) dan tinggi 4-10 meter, namun dengan ketebalan yang signifikan (hingga 2 cm). Selain sering digunakan sebagai tanaman hias, terutama dalam pot di rumah minimalis karena tampilan unik dan warnanya yang artistik, bambu kuning juga dipercaya memiliki khasiat obat herbal untuk berbagai penyakit. Di perkampungan, bambu kuning sering digunakan sebagai pagar karena ketahanannya yang tinggi.
 
-**Lainnya:** [Jual Bambu Steger di Tanah Sareal Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanah-sareal-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanah Sareal Bogor \[Terdekat\]](/jual-bambu-steger-di-tanah-sareal-bogor-terdekat/)
 
 ## Mitra Terpercaya untuk Pengadaan Bambu di Ancol Jakarta
 

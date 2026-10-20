@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Benda Tangerang [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Kenari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kenari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kenari Jakarta \[Terdekat\]](/jual-bambu-steger-di-kenari-jakarta-terdekat/)
 
 ## Mengenal Jenis Bambu dan Kegunaannya di Sekitar Benda Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan terkada
 
 Bambu kuning tergolong sulit diperoleh karena tidak tumbuh di semua daerah. Fungsi bambu ini juga tidak terlalu umum digunakan oleh masyarakat. Ciri-cirinya adalah ukuran diameter kecil (5-8 cm), permukaan beruas-ruas, dan tinggi batang yang tidak terlalu tinggi (4-10 m), namun memiliki ketebalan yang cukup signifikan hingga 2 cm. Bambu kuning dikenal sebagai salah satu jenis bambu yang dapat dibudidayakan, dicangkok, dan dipercaya memiliki khasiat obat herbal untuk berbagai penyakit seperti infeksi, hepatitis, dan gangguan organ dalam. Di rumah-rumah modern, bambu kuning sering dimanfaatkan sebagai tanaman hias, bahkan ditanam di pot-pot kecil karena bentuknya yang unik dan warnanya yang artistik. Sementara itu, di daerah pedesaan, bambu kuning sering digunakan sebagai pagar karena memiliki ketahanan yang lebih baik daripada jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Klender Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-klender-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Klender Jakarta \[Terdekat\]](/jual-bambu-steger-di-klender-jakarta-terdekat/)
 
 ## Dapatkan Bambu Berkualitas dari Supplier Terdekat di Benda Tangerang
 

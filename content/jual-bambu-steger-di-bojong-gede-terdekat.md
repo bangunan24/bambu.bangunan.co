@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bojong Gede [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Ulujami Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ulujami-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ulujami Jakarta \[Terdekat\]](/jual-bambu-steger-di-ulujami-jakarta-terdekat/)
 
 ## Mengenal Jenis Bambu dan Kegunaannya di Bojong Gede
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan ada yan
 
 Bambu kuning lebih sulit ditemukan karena tidak tumbuh di semua wilayah. Pemanfaatannya juga tidak seumum jenis bambu lainnya. Ciri-cirinya adalah diameter kecil (5-8 cm), permukaan beruas-ruas, dan tinggi batang yang tidak terlalu tinggi (4-10 m), namun memiliki ketebalan yang cukup signifikan (hingga 2 cm). Bambu kuning dikenal memiliki khasiat obat herbal untuk berbagai penyakit, seperti infeksi, hepatitis, dan gangguan organ dalam. Di desain rumah minimalis, bambu kuning sering digunakan sebagai tanaman hias, bahkan ditanam dalam pot-pot kecil karena bentuknya yang unik dan warna yang artistik. Bambu kuning juga sering digunakan sebagai bahan pagar karena kekuatan dan daya tahannya yang tinggi.
 
-**Lainnya:** [Jual Bambu Steger di Bambu Apus Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bambu-apus-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bambu Apus Jakarta \[Terdekat\]](/jual-bambu-steger-di-bambu-apus-jakarta-terdekat/)
 
 ## Mitra Terpercaya untuk Pengadaan Bambu di Bojong Gede
 

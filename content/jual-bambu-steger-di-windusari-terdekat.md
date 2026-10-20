@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Windusari [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Magetan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-magetan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Magetan \[Terdekat\]](/jual-bambu-steger-di-magetan-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Windusari
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni macam bambu yg terbilang sulit untuk didapatkan karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh kuat bila digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kayumanis Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kayumanis-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kayumanis Bogor \[Terdekat\]](/jual-bambu-steger-di-kayumanis-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Windusari
 

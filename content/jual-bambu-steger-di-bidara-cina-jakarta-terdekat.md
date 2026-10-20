@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bidara Cina Jakarta [Terdekat]](/images/jual-bambu-tali-39.png)
 
-**Lainnya:** [Jual Bambu Steger di Pisangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pisangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pisangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pisangan-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya yang Tersedia di Bidara Cina Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki keunikan tersendiri dengan warna batangnya yang menghitam 
 
 Bambu kuning relatif sulit ditemukan karena tidak tumbuh secara luas di seluruh wilayah Indonesia.  Bambu jenis ini memiliki diameter sekitar 5-8 centimeter, dengan ketebalan dinding sekitar 2 centimeter dan tinggi sekitar 4-10 meter. Bambu kuning dipercaya memiliki khasiat pengobatan tradisional untuk berbagai penyakit. Di perkotaan, bambu kuning sering digunakan sebagai tanaman hias yang unik dan menarik. Di daerah pedesaan, bambu kuning sering dimanfaatkan sebagai bahan pagar karena ketahanannya terhadap cuaca ekstrem.
 
-**Lainnya:** [Jual Bambu Steger di Darangdan Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-darangdan-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Darangdan Purwakarta \[Terdekat\]](/jual-bambu-steger-di-darangdan-purwakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya di Bidara Cina Jakarta
 

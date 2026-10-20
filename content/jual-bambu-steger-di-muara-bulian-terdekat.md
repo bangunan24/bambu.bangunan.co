@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Muara Bulian [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Kopi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-kopi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Kopi Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-kopi-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Muara Bulian
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini amat tahan bila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cisalak Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisalak-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisalak Depok \[Terdekat\]](/jual-bambu-steger-di-cisalak-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Muara Bulian
 

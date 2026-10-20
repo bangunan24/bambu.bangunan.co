@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rajeg Tangerang [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Rambutan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rambutan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rambutan Jakarta \[Terdekat\]](/jual-bambu-steger-di-rambutan-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Rajeg Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini amat kuat kalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cinangka Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cinangka-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cinangka Depok \[Terdekat\]](/jual-bambu-steger-di-cinangka-depok-terdekat/)
 
 ## Penjual Bambu Terdekat Di Rajeg Tangerang
 

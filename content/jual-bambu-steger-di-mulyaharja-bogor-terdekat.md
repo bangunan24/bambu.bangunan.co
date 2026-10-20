@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mulyaharja Bogor [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Pinang Ranti Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pinang-ranti-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pinang Ranti Jakarta \[Terdekat\]](/jual-bambu-steger-di-pinang-ranti-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mulyaharja Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini adalah macam bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini sangat kuat jika diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Dramaga \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-dramaga-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Dramaga \[Terdekat\]](/jual-bambu-steger-di-dramaga-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Mulyaharja Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Krukut Jakarta [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Tirtamulya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tirtamulya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tirtamulya Karawang \[Terdekat\]](/jual-bambu-steger-di-tirtamulya-karawang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Krukut Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini amat kuat seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bantul \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bantul-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bantul \[Terdekat\]](/jual-bambu-steger-di-bantul-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Krukut Jakarta
 

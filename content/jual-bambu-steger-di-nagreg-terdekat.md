@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Nagreg [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Serang Baru Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serang-baru-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serang Baru Bekasi \[Terdekat\]](/jual-bambu-steger-di-serang-baru-bekasi-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Nagreg
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk diperoleh sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini amat tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikande \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikande-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikande \[Terdekat\]](/jual-bambu-steger-di-cikande-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Nagreg
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pluit Jakarta [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Pengasinan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pengasinan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pengasinan Depok \[Terdekat\]](/jual-bambu-steger-di-pengasinan-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pluit Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar tahan kalau diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gambir Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gambir-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gambir Jakarta \[Terdekat\]](/jual-bambu-steger-di-gambir-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Pluit Jakarta
 

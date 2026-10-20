@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karangtengah Tangerang [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Serengseng Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serengseng-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serengseng Jakarta \[Terdekat\]](/jual-bambu-steger-di-serengseng-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Karangtengah Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini sungguh-sungguh kuat jikalau digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikalong Wetan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikalong-wetan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikalong Wetan \[Terdekat\]](/jual-bambu-steger-di-cikalong-wetan-terdekat/)
 
 ## Penjual Bambu Terdekat Di Karangtengah Tangerang
 

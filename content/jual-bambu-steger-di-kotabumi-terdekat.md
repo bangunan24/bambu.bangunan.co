@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kotabumi [Terdekat]](/images/jual-bambu-tali-39.png)
 
-**Lainnya:** [Jual Bambu Steger di Cilebar Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilebar-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilebar Karawang \[Terdekat\]](/jual-bambu-steger-di-cilebar-karawang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kotabumi
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh tahan jika digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rengasdengklok Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rengasdengklok-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rengasdengklok Karawang \[Terdekat\]](/jual-bambu-steger-di-rengasdengklok-karawang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kotabumi
 

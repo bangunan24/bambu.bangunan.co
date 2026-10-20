@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kapuk Jakarta [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatiuwung Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiuwung-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiuwung Tangerang \[Terdekat\]](/jual-bambu-steger-di-jatiuwung-tangerang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kapuk Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang betul-betul tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini umum diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini benar-benar tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pakuan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pakuan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pakuan Bogor \[Terdekat\]](/jual-bambu-steger-di-pakuan-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kapuk Jakarta
 

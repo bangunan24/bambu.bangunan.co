@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukmajaya Depok [Terdekat]](/images/jual-bambu-tali-29.png)
 
-**Lainnya:** [Jual Bambu Steger di Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karawang \[Terdekat\]](/jual-bambu-steger-di-karawang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Sukmajaya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini betul-betul tahan jikalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Margajaya Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-margajaya-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Margajaya Bogor \[Terdekat\]](/jual-bambu-steger-di-margajaya-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Sukmajaya Depok
 

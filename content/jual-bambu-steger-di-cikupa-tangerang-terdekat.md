@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cikupa Tangerang [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Bendungan Hilir Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bendungan-hilir-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bendungan Hilir Jakarta \[Terdekat\]](/jual-bambu-steger-di-bendungan-hilir-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cikupa Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yaitu macam bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tegal Alur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegal-alur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegal Alur Jakarta \[Terdekat\]](/jual-bambu-steger-di-tegal-alur-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cikupa Tangerang
 

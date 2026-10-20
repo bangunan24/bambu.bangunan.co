@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Cina Depok [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Matraman Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-matraman-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Matraman Jakarta \[Terdekat\]](/jual-bambu-steger-di-matraman-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pondok Cina Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini benar-benar tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karangwage \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangwage-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangwage \[Terdekat\]](/jual-bambu-steger-di-karangwage-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Pondok Cina Depok
 

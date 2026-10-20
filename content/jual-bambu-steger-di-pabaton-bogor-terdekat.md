@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pabaton Bogor [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukatani Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukatani-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukatani Bekasi \[Terdekat\]](/jual-bambu-steger-di-sukatani-bekasi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pabaton Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini sangat tahan jika dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cangkuang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cangkuang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cangkuang \[Terdekat\]](/jual-bambu-steger-di-cangkuang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pabaton Bogor
 

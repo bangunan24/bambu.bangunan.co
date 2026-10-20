@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Klaten [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibodas Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibodas-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibodas Tangerang \[Terdekat\]](/jual-bambu-steger-di-cibodas-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Klaten
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat bila diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Soreang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-soreang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Soreang \[Terdekat\]](/jual-bambu-steger-di-soreang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Klaten
 

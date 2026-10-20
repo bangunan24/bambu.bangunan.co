@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jelambar Jakarta [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Mekarwangi Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarwangi-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarwangi Bogor \[Terdekat\]](/jual-bambu-steger-di-mekarwangi-bogor-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Jelambar Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini sangat kuat kalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kapuk Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kapuk-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kapuk Jakarta \[Terdekat\]](/jual-bambu-steger-di-kapuk-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jelambar Jakarta
 

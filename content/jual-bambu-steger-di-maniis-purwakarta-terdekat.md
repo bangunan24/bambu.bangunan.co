@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Maniis Purwakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukamaju Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukamaju-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukamaju Depok \[Terdekat\]](/jual-bambu-steger-di-sukamaju-depok-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Maniis Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sungguh-sungguh kuat sekiranya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciampel Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciampel-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciampel Karawang \[Terdekat\]](/jual-bambu-steger-di-ciampel-karawang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Maniis Purwakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gunung Sahari Jakarta [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di PalMeriam Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-palmeriam-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di PalMeriam Jakarta \[Terdekat\]](/jual-bambu-steger-di-palmeriam-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Gunung Sahari Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan kalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatinegara Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatinegara-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatinegara Jakarta \[Terdekat\]](/jual-bambu-steger-di-jatinegara-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Gunung Sahari Jakarta
 

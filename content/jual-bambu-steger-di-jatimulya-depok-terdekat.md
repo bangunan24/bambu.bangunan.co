@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatimulya Depok [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Bawang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-bawang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Bawang Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-bawang-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Jatimulya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini amat tahan jikalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Leuwisadeng \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-leuwisadeng-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Leuwisadeng \[Terdekat\]](/jual-bambu-steger-di-leuwisadeng-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Jatimulya Depok
 

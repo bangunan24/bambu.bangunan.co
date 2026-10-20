@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Medan Satria Bekasi [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Boyolali \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-boyolali-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Boyolali \[Terdekat\]](/jual-bambu-steger-di-boyolali-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Medan Satria Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini benar-benar kuat seandainya diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tajur Halang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tajur-halang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tajur Halang \[Terdekat\]](/jual-bambu-steger-di-tajur-halang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Medan Satria Bekasi
 

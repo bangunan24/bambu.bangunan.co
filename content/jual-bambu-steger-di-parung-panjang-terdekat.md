@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Parung Panjang [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Mojosari \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mojosari-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mojosari \[Terdekat\]](/jual-bambu-steger-di-mojosari-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Parung Panjang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini amat tahan kalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalipuro \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalipuro-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalipuro \[Terdekat\]](/jual-bambu-steger-di-kalipuro-terdekat/)
 
 ## Penjual Bambu Terdekat Di Parung Panjang
 

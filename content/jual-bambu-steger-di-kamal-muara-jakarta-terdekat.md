@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kamal Muara Jakarta [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciampea \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciampea-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciampea \[Terdekat\]](/jual-bambu-steger-di-ciampea-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kamal Muara Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini amat tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukamulya Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukamulya-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukamulya Tangerang \[Terdekat\]](/jual-bambu-steger-di-sukamulya-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kamal Muara Jakarta
 

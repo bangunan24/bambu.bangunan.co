@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Koja Jakarta [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Cijeruk \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cijeruk-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cijeruk \[Terdekat\]](/jual-bambu-steger-di-cijeruk-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Koja Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul tahan kalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Serpong Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serpong-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serpong Tangerang \[Terdekat\]](/jual-bambu-steger-di-serpong-tangerang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Koja Jakarta
 

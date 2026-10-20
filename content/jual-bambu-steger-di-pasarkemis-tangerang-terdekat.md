@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pasarkemis Tangerang [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Kemiri Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemiri-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemiri Tangerang \[Terdekat\]](/jual-bambu-steger-di-kemiri-tangerang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Pasarkemis Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh tahan apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Koja Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-koja-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Koja Jakarta \[Terdekat\]](/jual-bambu-steger-di-koja-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Pasarkemis Tangerang
 

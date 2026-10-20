@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Penggilingan Jakarta [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Melawai Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-melawai-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Melawai Jakarta \[Terdekat\]](/jual-bambu-steger-di-melawai-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Penggilingan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk diperoleh sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sangat kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kampung Tengah Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kampung-tengah-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kampung Tengah Jakarta \[Terdekat\]](/jual-bambu-steger-di-kampung-tengah-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Penggilingan Jakarta
 

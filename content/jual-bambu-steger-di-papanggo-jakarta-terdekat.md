@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Papanggo Jakarta [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Sungai Bambu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sungai-bambu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sungai Bambu Jakarta \[Terdekat\]](/jual-bambu-steger-di-sungai-bambu-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Papanggo Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini benar-benar kuat kalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bungur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bungur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bungur Jakarta \[Terdekat\]](/jual-bambu-steger-di-bungur-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Papanggo Jakarta
 

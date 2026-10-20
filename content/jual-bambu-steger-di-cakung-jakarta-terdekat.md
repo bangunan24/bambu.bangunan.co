@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cakung Jakarta [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Karangmalang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangmalang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangmalang \[Terdekat\]](/jual-bambu-steger-di-karangmalang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cakung Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah tipe bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini betul-betul kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Medan Satria Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-medan-satria-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Medan Satria Bekasi \[Terdekat\]](/jual-bambu-steger-di-medan-satria-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cakung Jakarta
 

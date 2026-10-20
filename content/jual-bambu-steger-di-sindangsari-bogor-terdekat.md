@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sindangsari Bogor [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebumen \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebumen-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebumen \[Terdekat\]](/jual-bambu-steger-di-kebumen-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Sindangsari Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini sangat tahan sekiranya diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kwitang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kwitang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kwitang Jakarta \[Terdekat\]](/jual-bambu-steger-di-kwitang-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Sindangsari Bogor
 

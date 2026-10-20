@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jember [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Lebak Bulus Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lebak-bulus-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lebak Bulus Jakarta \[Terdekat\]](/jual-bambu-steger-di-lebak-bulus-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Jember
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sungguh-sungguh kuat jika dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Pedes Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-pedes-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Pedes Bogor \[Terdekat\]](/jual-bambu-steger-di-kebon-pedes-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Jember
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cijeruk [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Curug Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-curug-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Curug Tangerang \[Terdekat\]](/jual-bambu-steger-di-curug-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Cijeruk
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapatkan sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sungguh-sungguh tahan bila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Plered Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-plered-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Plered Purwakarta \[Terdekat\]](/jual-bambu-steger-di-plered-purwakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cijeruk
 

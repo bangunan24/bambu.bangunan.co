@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kelapa Dua Tangerang [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciseeng \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciseeng-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciseeng \[Terdekat\]](/jual-bambu-steger-di-ciseeng-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kelapa Dua Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini sangat kuat jika diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Gede Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-gede-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Gede Bekasi \[Terdekat\]](/jual-bambu-steger-di-pondok-gede-bekasi-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kelapa Dua Tangerang
 

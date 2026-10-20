@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karangasem [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Cabangbungin Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cabangbungin-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cabangbungin Bekasi \[Terdekat\]](/jual-bambu-steger-di-cabangbungin-bekasi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Karangasem
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu macam bambu yang terbilang susah untuk didapat karena memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini betul-betul tahan bila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sumedang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sumedang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sumedang \[Terdekat\]](/jual-bambu-steger-di-sumedang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Karangasem
 

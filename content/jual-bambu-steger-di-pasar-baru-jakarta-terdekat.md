@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pasar Baru Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Kelapa Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-kelapa-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Kelapa Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-kelapa-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pasar Baru Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini benar-benar tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Lenteng Agung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lenteng-agung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lenteng Agung Jakarta \[Terdekat\]](/jual-bambu-steger-di-lenteng-agung-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pasar Baru Jakarta
 

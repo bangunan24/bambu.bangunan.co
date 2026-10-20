@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukakarya Bekasi [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Kelapa Nunggal \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kelapa-nunggal-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kelapa Nunggal \[Terdekat\]](/jual-bambu-steger-di-kelapa-nunggal-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Sukakarya Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini benar-benar kuat apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kramat Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kramat-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kramat Jakarta \[Terdekat\]](/jual-bambu-steger-di-kramat-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Sukakarya Bekasi
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tanah Baru Bogor [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Sawah Besar Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sawah-besar-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sawah Besar Jakarta \[Terdekat\]](/jual-bambu-steger-di-sawah-besar-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Tanah Baru Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yaitu macam bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilacap \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilacap-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilacap \[Terdekat\]](/jual-bambu-steger-di-cilacap-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tanah Baru Bogor
 

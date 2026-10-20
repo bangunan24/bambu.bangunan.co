@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Batujajar [Terdekat]](/images/jual-bambu-tali-29.png)
 
-**Lainnya:** [Jual Bambu Steger di Sunter Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sunter-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sunter Jakarta \[Terdekat\]](/jual-bambu-steger-di-sunter-jakarta-terdekat/)
 
 ## Ragam Jenis Bambu dan Pemanfaatannya di Batujajar
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan kadang 
 
 Bambu kuning relatif sulit ditemukan karena tidak tumbuh di semua daerah. Pemanfaatannya juga tidak sepopuler jenis lainnya. Diameter bambu kuning sekitar 5 hingga 8 cm dengan tinggi 4 hingga 10 cm dan ketebalan yang signifikan, mencapai 2 cm. Jenis bambu ini dikenal memiliki khasiat obat herbal dan dipercaya dapat mengatasi berbagai penyakit. Selain itu, bambu kuning sering dijadikan tanaman hias, terutama dalam pot-pot di rumah modern. Di daerah pedesaan, bambu kuning sering digunakan sebagai pagar karena ketahanannya yang lebih baik dibandingkan jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Bukit Duri Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bukit-duri-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bukit Duri Jakarta \[Terdekat\]](/jual-bambu-steger-di-bukit-duri-jakarta-terdekat/)
 
 ## Mencari Bambu Terdekat di Batujajar?
 

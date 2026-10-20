@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciparigi Bogor [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Tajur Halang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tajur-halang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tajur Halang \[Terdekat\]](/jual-bambu-steger-di-tajur-halang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Ciparigi Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini amat kuat jika diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Boyolali \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-boyolali-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Boyolali \[Terdekat\]](/jual-bambu-steger-di-boyolali-terdekat/)
 
 ## Penjual Bambu Terdekat Di Ciparigi Bogor
 

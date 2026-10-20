@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mojosari [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Banyusari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-banyusari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Banyusari Karawang \[Terdekat\]](/jual-bambu-steger-di-banyusari-karawang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mojosari
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sungguh-sungguh tahan seandainya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia terutama di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tirtajaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tirtajaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tirtajaya Depok \[Terdekat\]](/jual-bambu-steger-di-tirtajaya-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Mojosari
 

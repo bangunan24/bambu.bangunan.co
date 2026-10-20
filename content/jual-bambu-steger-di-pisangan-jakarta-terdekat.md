@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pisangan Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Tomang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tomang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tomang Jakarta \[Terdekat\]](/jual-bambu-steger-di-tomang-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pisangan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk diperoleh sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini umum diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini amat tahan bila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bantarjati Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bantarjati-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bantarjati Bogor \[Terdekat\]](/jual-bambu-steger-di-bantarjati-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pisangan Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipondoh Tangerang [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Batutulis Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batutulis-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batutulis Bogor \[Terdekat\]](/jual-bambu-steger-di-batutulis-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Cipondoh Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini benar-benar tahan seandainya dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutama di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tegalwaru Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegalwaru-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegalwaru Karawang \[Terdekat\]](/jual-bambu-steger-di-tegalwaru-karawang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cipondoh Tangerang
 

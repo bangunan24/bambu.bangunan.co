@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tajur Halang [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Ceger Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ceger-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ceger Jakarta \[Terdekat\]](/jual-bambu-steger-di-ceger-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tajur Halang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini sangat tahan jika digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukasari Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukasari-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukasari Bogor \[Terdekat\]](/jual-bambu-steger-di-sukasari-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Tajur Halang
 

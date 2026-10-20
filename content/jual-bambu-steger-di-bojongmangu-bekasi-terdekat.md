@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bojongmangu Bekasi [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Leuwisadeng \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-leuwisadeng-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Leuwisadeng \[Terdekat\]](/jual-bambu-steger-di-leuwisadeng-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Bojongmangu Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk didapatkan karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini sangat kuat seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Bawang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-bawang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Bawang Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-bawang-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Bojongmangu Bekasi
 

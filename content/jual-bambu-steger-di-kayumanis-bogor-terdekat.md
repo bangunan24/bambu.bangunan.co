@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kayumanis Bogor [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Kacang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-kacang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Kacang Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-kacang-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kayumanis Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini benar-benar tahan bila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Leuwiliang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-leuwiliang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Leuwiliang \[Terdekat\]](/jual-bambu-steger-di-leuwiliang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kayumanis Bogor
 

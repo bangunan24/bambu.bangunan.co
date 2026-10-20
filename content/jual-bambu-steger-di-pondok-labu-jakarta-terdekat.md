@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Labu Jakarta [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Dukuh Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-dukuh-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Dukuh Jakarta \[Terdekat\]](/jual-bambu-steger-di-dukuh-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Pondok Labu Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini benar-benar kuat seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Petukangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-petukangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Petukangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-petukangan-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Pondok Labu Jakarta
 

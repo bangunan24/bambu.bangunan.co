@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Batu Ampar Jakarta [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Bangka Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bangka-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bangka Jakarta \[Terdekat\]](/jual-bambu-steger-di-bangka-jakarta-terdekat/)
 
 ## Ragam Jenis Bambu dan Pemanfaatannya di Batu Ampar Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, bahkan ada yan
 
 Bambu kuning relatif sulit ditemukan karena tidak tumbuh di semua wilayah dan tidak banyak dimanfaatkan secara luas. Ciri-ciri bambu kuning meliputi lingkaran kecil (5-8 cm), permukaan beruas-ruas, tinggi batang 4-10 meter, dan ketebalan hingga 2 cm. Bambu ini dapat dibudidayakan, dicangkok, dan dipercaya memiliki khasiat obat herbal untuk berbagai penyakit seperti infeksi dan hepatitis. Banyak digunakan sebagai tanaman hias di rumah minimalis, bahkan ditanam dalam pot karena bentuk dan warnanya yang artistik. Di perkampungan, bambu kuning sering dimanfaatkan sebagai pagar karena ketahanannya yang lebih unggul dibandingkan jenis bambu lainnya. Meskipun berukuran kecil, pagar berbahan bambu kuning terjamin kokoh dan tahan lama. Inilah beberapa jenis bambu yang sering dijumpai di Indonesia, terutama di daerah yang memiliki kandungan air melimpah seperti lereng gunung, tepi sungai, sawah, dan selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tulungagung \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tulungagung-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tulungagung \[Terdekat\]](/jual-bambu-steger-di-tulungagung-terdekat/)
 
 ## Penyedia Bambu Terdekat di Batu Ampar Jakarta
 

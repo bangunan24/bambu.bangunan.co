@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tulungagung [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Rumpin \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rumpin-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rumpin \[Terdekat\]](/jual-bambu-steger-di-rumpin-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Tulungagung
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini benar-benar kuat jika diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilandak Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilandak-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilandak Jakarta \[Terdekat\]](/jual-bambu-steger-di-cilandak-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tulungagung
 

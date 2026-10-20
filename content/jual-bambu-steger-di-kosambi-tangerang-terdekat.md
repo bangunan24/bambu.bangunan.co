@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kosambi Tangerang [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Telagasari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-telagasari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Telagasari Karawang \[Terdekat\]](/jual-bambu-steger-di-telagasari-karawang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Kosambi Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah macam bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat kalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Batujajar \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batujajar-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batujajar \[Terdekat\]](/jual-bambu-steger-di-batujajar-terdekat/)
 
 ## Penjual Bambu Terdekat Di Kosambi Tangerang
 

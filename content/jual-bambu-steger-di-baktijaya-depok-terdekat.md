@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Baktijaya Depok [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Limo Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-limo-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Limo Depok \[Terdekat\]](/jual-bambu-steger-di-limo-depok-terdekat/)
 
 ## Jenis-Jenis Bambu dan Pemanfaatannya di Wilayah Baktijaya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki daya tarik tersendiri karena warna khasnya yang unik, mula
 
 Bambu kuning merupakan jenis bambu yang relatif sulit ditemukan karena tidak tumbuh di semua daerah. Namun, bambu ini memiliki keunggulan tersendiri dalam hal manfaat kesehatan, karena sering dipercaya memiliki khasiat obat herbal untuk berbagai penyakit. Dengan diameter sekitar 5 hingga 8 sentimeter dan tinggi 4 hingga 10 meter, bambu kuning memiliki ketebalan yang cukup signifikan, mencapai 2 sentimeter. Di perkotaan, bambu kuning sering dimanfaatkan sebagai tanaman hias yang unik dan menarik, terutama dalam pot-pot minimalis karena bentuk yang artistik dan warnanya yang cerah. Bambu kuning juga sering digunakan sebagai bahan pagar yang kuat dan tahan lama, bahkan lebih unggul dari beberapa jenis bambu lainnya.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Baru Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-baru-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Baru Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-baru-jakarta-terdekat/)
 
 ## Dapatkan Bambu Berkualitas dari Supplier Terdekat di Baktijaya Depok
 

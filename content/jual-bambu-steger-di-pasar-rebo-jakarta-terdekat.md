@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pasar Rebo Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Labu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-labu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Labu Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-labu-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Pasar Rebo Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan seandainya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciracas Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciracas-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciracas Jakarta \[Terdekat\]](/jual-bambu-steger-di-ciracas-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pasar Rebo Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di KebonPala Jakarta [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Kencana Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kencana-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kencana Bogor \[Terdekat\]](/jual-bambu-steger-di-kencana-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di KebonPala Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk diperoleh karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat bila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Klaten \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-klaten-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Klaten \[Terdekat\]](/jual-bambu-steger-di-klaten-terdekat/)
 
 ## Supplier Bambu Terpercaya Di KebonPala Jakarta
 

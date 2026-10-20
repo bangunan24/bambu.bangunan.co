@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mauk Tangerang [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Papanggo Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-papanggo-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Papanggo Jakarta \[Terdekat\]](/jual-bambu-steger-di-papanggo-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mauk Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini sangat kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Harjasari Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-harjasari-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Harjasari Bogor \[Terdekat\]](/jual-bambu-steger-di-harjasari-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Mauk Tangerang
 

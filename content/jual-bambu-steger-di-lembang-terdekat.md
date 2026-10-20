@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Lembang [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Gunung Batu Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunung-batu-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunung Batu Bogor \[Terdekat\]](/jual-bambu-steger-di-gunung-batu-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Lembang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini betul-betul kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pasir Kuda Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasir-kuda-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasir Kuda Bogor \[Terdekat\]](/jual-bambu-steger-di-pasir-kuda-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Lembang
 

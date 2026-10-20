@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tuban [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Gunung Sahari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunung-sahari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunung Sahari Jakarta \[Terdekat\]](/jual-bambu-steger-di-gunung-sahari-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Tuban
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan jika diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Paseban Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-paseban-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Paseban Jakarta \[Terdekat\]](/jual-bambu-steger-di-paseban-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Tuban
 

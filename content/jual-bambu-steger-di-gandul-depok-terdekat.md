@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gandul Depok [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Padaherang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-padaherang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Padaherang \[Terdekat\]](/jual-bambu-steger-di-padaherang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Gandul Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini benar-benar tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jayanti Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jayanti-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jayanti Tangerang \[Terdekat\]](/jual-bambu-steger-di-jayanti-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Gandul Depok
 

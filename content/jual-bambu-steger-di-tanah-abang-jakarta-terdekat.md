@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tanah Abang Jakarta [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibinong \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibinong-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibinong \[Terdekat\]](/jual-bambu-steger-di-cibinong-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tanah Abang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah tipe bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini betul-betul kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukadamai Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukadamai-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukadamai Bogor \[Terdekat\]](/jual-bambu-steger-di-sukadamai-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tanah Abang Jakarta
 

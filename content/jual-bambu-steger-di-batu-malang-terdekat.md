@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Batu Malang [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Cawang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cawang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cawang Jakarta \[Terdekat\]](/jual-bambu-steger-di-cawang-jakarta-terdekat/)
 
 ## Mengenal Beragam Jenis Bambu dan Kegunaannya di Batu Malang
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki ciri khas warna hitam atau hijau kehitaman, terkadang juga
 
 Bambu kuning adalah jenis bambu yang lebih sulit ditemukan karena tidak tumbuh di semua tempat. Fungsinya pun tidak seumum jenis bambu lainnya. Diameternya relatif kecil, sekitar 5 hingga 8 cm, dengan permukaan beruas-ruas dan tinggi batang antara 4 hingga 10 meter, namun memiliki ketebalan hingga 2 cm. Bambu kuning diketahui memiliki potensi sebagai obat herbal untuk berbagai penyakit, seperti infeksi dan hepatitis. Di rumah-rumah modern, bambu kuning sering digunakan sebagai tanaman hias, bahkan ditanam dalam pot-pot kecil karena bentuk dan warnanya yang artistik. Di perkampungan, bambu kuning umumnya digunakan sebagai pagar karena ketahanannya yang lebih tinggi dibandingkan bambu lainnya. Meskipun diameternya kecil, bambu kuning sangat kuat dan tahan lama untuk dijadikan pagar.
 
-**Lainnya:** [Jual Bambu Steger di Sukasari Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukasari-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukasari Purwakarta \[Terdekat\]](/jual-bambu-steger-di-sukasari-purwakarta-terdekat/)
 
 ## Mengandalkan Supplier Bambu Terpercaya di Batu Malang
 

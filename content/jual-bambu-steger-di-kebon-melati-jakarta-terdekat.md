@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebon Melati Jakarta [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Tegallega Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegallega-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegallega Bogor \[Terdekat\]](/jual-bambu-steger-di-tegallega-bogor-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kebon Melati Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar tahan sekiranya diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bedahan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bedahan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bedahan Depok \[Terdekat\]](/jual-bambu-steger-di-bedahan-depok-terdekat/)
 
 ## Penjual Bambu Terdekat Di Kebon Melati Jakarta
 

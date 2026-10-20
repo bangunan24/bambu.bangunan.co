@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Penjaringan Jakarta [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Tapos Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tapos-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tapos Depok \[Terdekat\]](/jual-bambu-steger-di-tapos-depok-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Penjaringan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yg terbilang sulit untuk diperoleh sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini amat kuat apabila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Blitar \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-blitar-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Blitar \[Terdekat\]](/jual-bambu-steger-di-blitar-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Penjaringan Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Legok Tangerang [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Periuk Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-periuk-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Periuk Tangerang \[Terdekat\]](/jual-bambu-steger-di-periuk-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Legok Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah jenis bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini sangat tahan apabila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Empang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-empang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Empang Bogor \[Terdekat\]](/jual-bambu-steger-di-empang-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Legok Tangerang
 

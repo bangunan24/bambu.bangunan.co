@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Curug Tangerang [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Pinang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-pinang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Pinang Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-pinang-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Curug Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul tahan seandainya dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipulir Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipulir-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipulir Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipulir-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Curug Tangerang
 

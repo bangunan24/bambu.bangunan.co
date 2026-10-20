@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sragen [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Jambe Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jambe-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jambe Tangerang \[Terdekat\]](/jual-bambu-steger-di-jambe-tangerang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Sragen
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini betul-betul tahan apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pangkalan Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pangkalan-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pangkalan Karawang \[Terdekat\]](/jual-bambu-steger-di-pangkalan-karawang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sragen
 

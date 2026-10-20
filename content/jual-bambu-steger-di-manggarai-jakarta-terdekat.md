@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Manggarai Jakarta [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Pameungpeuk \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pameungpeuk-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pameungpeuk \[Terdekat\]](/jual-bambu-steger-di-pameungpeuk-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Manggarai Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini benar-benar tahan seandainya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatimulya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatimulya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatimulya Depok \[Terdekat\]](/jual-bambu-steger-di-jatimulya-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Manggarai Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di KebonSirih Jakarta [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Kedung Jaya Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-jaya-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Jaya Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-jaya-bogor-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di KebonSirih Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kronjo Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kronjo-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kronjo Tangerang \[Terdekat\]](/jual-bambu-steger-di-kronjo-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di KebonSirih Jakarta
 

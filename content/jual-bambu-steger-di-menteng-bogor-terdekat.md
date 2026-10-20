@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Menteng Bogor [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Sumur Batu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sumur-batu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sumur Batu Jakarta \[Terdekat\]](/jual-bambu-steger-di-sumur-batu-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Menteng Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini amat kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bungursari Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bungursari-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bungursari Purwakarta \[Terdekat\]](/jual-bambu-steger-di-bungursari-purwakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Menteng Bogor
 

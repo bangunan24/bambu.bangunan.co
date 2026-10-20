@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jati Pulo Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Kedung Halang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-halang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Halang Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-halang-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Jati Pulo Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yaitu jenis bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini betul-betul kuat jikalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Krukut Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-krukut-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Krukut Depok \[Terdekat\]](/jual-bambu-steger-di-krukut-depok-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Jati Pulo Jakarta
 

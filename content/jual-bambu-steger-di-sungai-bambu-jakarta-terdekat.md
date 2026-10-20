@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sungai Bambu Jakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Kedung Badak Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-badak-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Badak Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-badak-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Sungai Bambu Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat jika diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Krukut Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-krukut-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Krukut Jakarta \[Terdekat\]](/jual-bambu-steger-di-krukut-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Sungai Bambu Jakarta
 

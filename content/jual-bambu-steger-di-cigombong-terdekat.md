@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cigombong [Terdekat]](/images/jual-bambu-tali-02.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibitung Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibitung-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibitung Bekasi \[Terdekat\]](/jual-bambu-steger-di-cibitung-bekasi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Cigombong
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yg terbilang susah untuk diperoleh karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sangat kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sragen \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sragen-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sragen \[Terdekat\]](/jual-bambu-steger-di-sragen-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cigombong
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pademangan Jakarta [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciparigi Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciparigi-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciparigi Bogor \[Terdekat\]](/jual-bambu-steger-di-ciparigi-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pademangan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini betul-betul tahan apabila digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Purwodadi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-purwodadi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Purwodadi \[Terdekat\]](/jual-bambu-steger-di-purwodadi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Pademangan Jakarta
 

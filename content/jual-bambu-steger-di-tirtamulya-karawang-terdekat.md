@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tirtamulya Karawang [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Galaxi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-galaxi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Galaxi Jakarta \[Terdekat\]](/jual-bambu-steger-di-galaxi-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Tirtamulya Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini benar-benar tahan seandainya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Penjaringan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-penjaringan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Penjaringan Jakarta \[Terdekat\]](/jual-bambu-steger-di-penjaringan-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tirtamulya Karawang
 

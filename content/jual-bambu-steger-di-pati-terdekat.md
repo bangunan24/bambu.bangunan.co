@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pati [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukadiri Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukadiri-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukadiri Tangerang \[Terdekat\]](/jual-bambu-steger-di-sukadiri-tangerang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pati
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah macam bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat kalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cibatu Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibatu-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibatu Purwakarta \[Terdekat\]](/jual-bambu-steger-di-cibatu-purwakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pati
 

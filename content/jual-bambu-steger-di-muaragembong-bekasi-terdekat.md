@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Muaragembong Bekasi [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Pegangsaan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pegangsaan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pegangsaan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pegangsaan-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Muaragembong Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini betul-betul kuat kalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Glodok Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-glodok-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Glodok Jakarta \[Terdekat\]](/jual-bambu-steger-di-glodok-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Muaragembong Bekasi
 

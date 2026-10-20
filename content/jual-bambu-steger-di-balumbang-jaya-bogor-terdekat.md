@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Balumbang Jaya Bogor [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Halim Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-halim-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Halim Jakarta \[Terdekat\]](/jual-bambu-steger-di-halim-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya yang Tersedia di Balumbang Jaya Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung dibedakan dengan warnanya yang khas: hitam, hijau kehitaman, atau h
 
 Bambu kuning termasuk jenis yang sulit ditemukan karena tidak tumbuh di semua wilayah.  Bambu ini memiliki diameter kecil sekitar 5 hingga 8 cm, tinggi batang 4 hingga 10 meter, namun dengan ketebalan yang cukup signifikan, mencapai 2 cm. Bambu kuning sering dianggap memiliki khasiat obat herbal untuk berbagai penyakit, seperti infeksi dan gangguan organ dalam. Selain itu, bambu kuning banyak dimanfaatkan sebagai tanaman hias, terutama dalam desain minimalis, dengan ditanam dalam pot-pot kecil.  Di daerah pedesaan, bambu kuning sering digunakan sebagai pagar karena daya tahannya yang lebih tinggi dibandingkan jenis bambu lainnya. 
 
-**Lainnya:** [Jual Bambu Steger di Pasar Minggu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasar-minggu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasar Minggu Jakarta \[Terdekat\]](/jual-bambu-steger-di-pasar-minggu-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya di Balumbang Jaya Bogor
 

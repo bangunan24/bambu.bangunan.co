@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Harjasari Bogor [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Bungursari Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bungursari-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bungursari Purwakarta \[Terdekat\]](/jual-bambu-steger-di-bungursari-purwakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Harjasari Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini sangat kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sumur Batu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sumur-batu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sumur Batu Jakarta \[Terdekat\]](/jual-bambu-steger-di-sumur-batu-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Harjasari Bogor
 

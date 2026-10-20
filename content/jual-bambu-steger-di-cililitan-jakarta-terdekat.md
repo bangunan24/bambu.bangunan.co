@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cililitan Jakarta [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Dramaga \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-dramaga-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Dramaga \[Terdekat\]](/jual-bambu-steger-di-dramaga-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Cililitan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini sangat kuat jikalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pinang Ranti Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pinang-ranti-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pinang Ranti Jakarta \[Terdekat\]](/jual-bambu-steger-di-pinang-ranti-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cililitan Jakarta
 

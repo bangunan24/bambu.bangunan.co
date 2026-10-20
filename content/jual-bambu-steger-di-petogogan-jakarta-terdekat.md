@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Petogogan Jakarta [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Beji Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-beji-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Beji Depok \[Terdekat\]](/jual-bambu-steger-di-beji-depok-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Petogogan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan kalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tegal Parang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegal-parang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegal Parang Jakarta \[Terdekat\]](/jual-bambu-steger-di-tegal-parang-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Petogogan Jakarta
 

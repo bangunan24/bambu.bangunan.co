@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebon Pedes Bogor [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawasari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawasari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawasari Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawasari-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kebon Pedes Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk diperoleh sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini benar-benar tahan bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilendek Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilendek-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilendek Bogor \[Terdekat\]](/jual-bambu-steger-di-cilendek-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kebon Pedes Bogor
 

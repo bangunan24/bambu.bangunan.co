@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Glodok Jakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Tuban \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tuban-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tuban \[Terdekat\]](/jual-bambu-steger-di-tuban-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Glodok Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar kuat jika diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutama di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Banjarnegara \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-banjarnegara-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Banjarnegara \[Terdekat\]](/jual-bambu-steger-di-banjarnegara-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Glodok Jakarta
 

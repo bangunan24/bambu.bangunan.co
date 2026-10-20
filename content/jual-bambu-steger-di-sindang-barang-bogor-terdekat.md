@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sindang Barang Bogor [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Prabumulih \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-prabumulih-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Prabumulih \[Terdekat\]](/jual-bambu-steger-di-prabumulih-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Sindang Barang Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan apabila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipeundeuy \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipeundeuy-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipeundeuy \[Terdekat\]](/jual-bambu-steger-di-cipeundeuy-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sindang Barang Bogor
 

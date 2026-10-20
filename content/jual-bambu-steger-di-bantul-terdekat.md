@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bantul [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Kemanggisan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemanggisan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemanggisan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kemanggisan-jakarta-terdekat/)
 
 ## Mengenal Lebih Dekat Jenis Bambu dan Kegunaannya di Bantul
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki warna unik, mulai dari hitam hingga hijau kehitaman atau u
 
 Bambu kuning tergolong sulit ditemukan karena tidak tumbuh di sembarang tempat. Bambu ini memiliki diameter kecil (5-8cm) dan tebal 2 cm dengan tinggi 4-10 meter. Bambu kuning dikenal karena manfaatnya sebagai obat herbal untuk berbagai penyakit, seperti infeksi dan hepatitis. Di era modern, bambu kuning sering digunakan sebagai tanaman hias, terutama dalam bentuk mini yang ditanam di pot. Selain itu, bambu ini juga cocok digunakan sebagai pagar rumah karena ketahanannya yang tinggi. 
 
-**Lainnya:** [Jual Bambu Steger di Kotabumi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kotabumi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kotabumi \[Terdekat\]](/jual-bambu-steger-di-kotabumi-terdekat/)
 
 ## Mengapa Memilih Penjual Bambu Terpercaya di Bantul?
 

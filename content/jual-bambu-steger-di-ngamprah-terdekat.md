@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ngamprah [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Purbalingga \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-purbalingga-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Purbalingga \[Terdekat\]](/jual-bambu-steger-di-purbalingga-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ngamprah
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni macam bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini amat kuat seandainya diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutama di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipayung Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipayung-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipayung Depok \[Terdekat\]](/jual-bambu-steger-di-cipayung-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ngamprah
 

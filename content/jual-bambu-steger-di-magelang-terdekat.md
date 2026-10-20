@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Magelang [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Pangkalan Jati Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pangkalan-jati-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pangkalan Jati Depok \[Terdekat\]](/jual-bambu-steger-di-pangkalan-jati-depok-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Magelang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk didapatkan karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sangat kuat apabila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jasinga \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jasinga-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jasinga \[Terdekat\]](/jual-bambu-steger-di-jasinga-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Magelang
 

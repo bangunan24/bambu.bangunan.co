@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gondangdia Jakarta [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Pasarkemis Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasarkemis-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasarkemis Tangerang \[Terdekat\]](/jual-bambu-steger-di-pasarkemis-tangerang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Gondangdia Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini benar-benar tahan sekiranya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Gunungjati \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunungjati-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunungjati \[Terdekat\]](/jual-bambu-steger-di-gunungjati-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Gondangdia Jakarta
 

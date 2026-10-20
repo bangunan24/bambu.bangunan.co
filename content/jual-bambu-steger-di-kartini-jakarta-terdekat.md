@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kartini Jakarta [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Palmerah Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-palmerah-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Palmerah Jakarta \[Terdekat\]](/jual-bambu-steger-di-palmerah-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kartini Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini betul-betul kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatiroto \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiroto-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiroto \[Terdekat\]](/jual-bambu-steger-di-jatiroto-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kartini Jakarta
 

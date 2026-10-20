@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Muarasari Bogor [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciracas Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciracas-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciracas Jakarta \[Terdekat\]](/jual-bambu-steger-di-ciracas-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Muarasari Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni macam bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Labu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-labu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Labu Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-labu-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Muarasari Bogor
 

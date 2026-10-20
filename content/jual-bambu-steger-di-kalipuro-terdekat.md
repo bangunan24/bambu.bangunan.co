@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalipuro [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Sindangsari Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindangsari-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindangsari Bogor \[Terdekat\]](/jual-bambu-steger-di-sindangsari-bogor-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kalipuro
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini betul-betul tahan kalau dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cibuluh Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibuluh-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibuluh Bogor \[Terdekat\]](/jual-bambu-steger-di-cibuluh-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Kalipuro
 

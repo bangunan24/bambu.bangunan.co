@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gedong Jakarta [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikini Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikini-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikini Jakarta \[Terdekat\]](/jual-bambu-steger-di-cikini-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Gedong Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat kalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Semplak Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-semplak-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Semplak Bogor \[Terdekat\]](/jual-bambu-steger-di-semplak-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Gedong Jakarta
 

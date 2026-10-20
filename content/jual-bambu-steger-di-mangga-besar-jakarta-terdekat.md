@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mangga Besar Jakarta [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawa Badak Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawa-badak-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawa Badak Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawa-badak-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Mangga Besar Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar tahan kalau digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciluar Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciluar-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciluar Bogor \[Terdekat\]](/jual-bambu-steger-di-ciluar-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Mangga Besar Jakarta
 

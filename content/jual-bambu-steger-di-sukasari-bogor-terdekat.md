@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukasari Bogor [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Galur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-galur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Galur Jakarta \[Terdekat\]](/jual-bambu-steger-di-galur-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Sukasari Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini sangat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Penggilingan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-penggilingan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Penggilingan Jakarta \[Terdekat\]](/jual-bambu-steger-di-penggilingan-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Sukasari Bogor
 

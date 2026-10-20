@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pandeglang [Terdekat]](/images/jual-bambu-tali-17.png)
 
-**Lainnya:** [Jual Bambu Steger di Penjaringan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-penjaringan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Penjaringan Jakarta \[Terdekat\]](/jual-bambu-steger-di-penjaringan-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pandeglang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini betul-betul kuat jika dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Galaxi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-galaxi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Galaxi Jakarta \[Terdekat\]](/jual-bambu-steger-di-galaxi-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pandeglang
 

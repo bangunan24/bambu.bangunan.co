@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalianyar Jakarta [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Sumedang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sumedang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sumedang \[Terdekat\]](/jual-bambu-steger-di-sumedang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Kalianyar Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cabangbungin Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cabangbungin-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cabangbungin Bekasi \[Terdekat\]](/jual-bambu-steger-di-cabangbungin-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kalianyar Jakarta
 

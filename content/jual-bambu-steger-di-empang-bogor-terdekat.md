@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Empang Bogor [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Muara Bulian \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-muara-bulian-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Muara Bulian \[Terdekat\]](/jual-bambu-steger-di-muara-bulian-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Empang Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah tipe bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini sungguh-sungguh tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalimulya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalimulya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalimulya Depok \[Terdekat\]](/jual-bambu-steger-di-kalimulya-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Empang Bogor
 

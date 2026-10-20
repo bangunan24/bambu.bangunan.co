@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cipinang Jakarta [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Cimanggis Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimanggis-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimanggis Depok \[Terdekat\]](/jual-bambu-steger-di-cimanggis-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cipinang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ranggamekar Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ranggamekar-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ranggamekar Bogor \[Terdekat\]](/jual-bambu-steger-di-ranggamekar-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cipinang Jakarta
 

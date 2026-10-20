@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Harapan Mulya Jakarta [Terdekat]](/images/jual-bambu-tali-17.png)
 
-**Lainnya:** [Jual Bambu Steger di Parung Panjang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-parung-panjang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Parung Panjang \[Terdekat\]](/jual-bambu-steger-di-parung-panjang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Harapan Mulya Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk didapatkan karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini amat kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Harjamukti Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-harjamukti-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Harjamukti Depok \[Terdekat\]](/jual-bambu-steger-di-harjamukti-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Harapan Mulya Jakarta
 

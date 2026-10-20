@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pamulang Tangerang [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Cengkareng Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cengkareng-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cengkareng Jakarta \[Terdekat\]](/jual-bambu-steger-di-cengkareng-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Pamulang Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yang terbilang sulit untuk didapatkan sebab memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini amat tahan seandainya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukaraja \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukaraja-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukaraja \[Terdekat\]](/jual-bambu-steger-di-sukaraja-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pamulang Tangerang
 

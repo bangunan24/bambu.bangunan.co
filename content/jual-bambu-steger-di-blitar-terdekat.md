@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Blitar [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Pakisjaya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pakisjaya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pakisjaya Karawang \[Terdekat\]](/jual-bambu-steger-di-pakisjaya-karawang-terdekat/)
 
 ## Jenis-Jenis Bambu dan Pemanfaatannya di Area Blitar
 
@@ -37,7 +37,7 @@ Bambu wulung dikenal dengan warna uniknya, yaitu hitam atau hijau kehitaman, kad
 
 Bambu kuning merupakan jenis bambu yang relatif sulit ditemukan karena habitatnya yang terbatas. Bambu ini juga tidak terlalu banyak dimanfaatkan oleh masyarakat umum karena fungsinya yang kurang beragam dibandingkan jenis bambu lainnya. Ciri-ciri bambu kuning meliputi diameter batang yang kecil, sekitar 5 hingga 8 cm, permukaan yang beruas-ruas, dan tinggi batang yang tidak terlalu tinggi, yaitu antara 4 hingga 10 meter. Meskipun demikian, bambu kuning memiliki ketebalan dinding batang yang cukup kuat, sekitar 2 cm. Bambu kuning dikenal memiliki khasiat obat herbal yang bermanfaat untuk mengobati berbagai penyakit, seperti infeksi dan gangguan fungsi hati. Di era modern, bambu kuning juga sering digunakan sebagai tanaman hias, bahkan ditanam dalam pot-pot kecil di rumah-rumah karena bentuk dan warnanya yang unik. Di wilayah pedesaan, bambu kuning sering digunakan sebagai bahan pembuatan pagar karena ketahanannya yang tinggi terhadap cuaca dan serangan hama.
 
-**Lainnya:** [Jual Bambu Steger di Jatiwangi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiwangi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiwangi \[Terdekat\]](/jual-bambu-steger-di-jatiwangi-terdekat/)
 
 ## Mencari Supplier Bambu Steger Terdekat di Blitar
 

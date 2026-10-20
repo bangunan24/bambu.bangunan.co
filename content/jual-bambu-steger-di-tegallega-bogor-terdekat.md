@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tegallega Bogor [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Lembang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lembang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lembang \[Terdekat\]](/jual-bambu-steger-di-lembang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Tegallega Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini betul-betul kuat kalau digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Kosong Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-kosong-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Kosong Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-kosong-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Tegallega Bogor
 

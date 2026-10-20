@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Paledang Bogor [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Cileunyi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cileunyi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cileunyi \[Terdekat\]](/jual-bambu-steger-di-cileunyi-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Paledang Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rawamangun Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawamangun-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawamangun Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawamangun-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Paledang Bogor
 

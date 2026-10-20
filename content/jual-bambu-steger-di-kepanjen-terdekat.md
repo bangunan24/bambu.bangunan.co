@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kepanjen [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Bojonegoro \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojonegoro-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojonegoro \[Terdekat\]](/jual-bambu-steger-di-bojonegoro-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kepanjen
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk didapat sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul tahan seandainya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tanjung Duren Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanjung-duren-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanjung Duren Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanjung-duren-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kepanjen
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tegal Gundil Bogor [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Benda Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-benda-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Benda Tangerang \[Terdekat\]](/jual-bambu-steger-di-benda-tangerang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Tegal Gundil Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sungguh-sungguh tahan bila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tegal Gundil Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegal-gundil-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegal Gundil Bogor \[Terdekat\]](/jual-bambu-steger-di-tegal-gundil-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Tegal Gundil Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tambun Bekasi [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Kedoya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedoya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedoya Jakarta \[Terdekat\]](/jual-bambu-steger-di-kedoya-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tambun Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini benar-benar tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kukusan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kukusan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kukusan Depok \[Terdekat\]](/jual-bambu-steger-di-kukusan-depok-terdekat/)
 
 ## Penjual Bambu Terdekat Di Tambun Bekasi
 

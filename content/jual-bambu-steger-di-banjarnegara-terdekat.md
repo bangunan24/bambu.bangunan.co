@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Banjarnegara [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di KramatPela Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kramatpela-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di KramatPela Jakarta \[Terdekat\]](/jual-bambu-steger-di-kramatpela-jakarta-terdekat/)
 
 ## Ragam Jenis Bambu dan Kegunaannya di Banjarnegara
 
@@ -37,7 +37,7 @@ Bambu wulung memiliki warna unik, yaitu hitam atau hijau kehitaman, kadang juga 
 
 Bambu kuning tergolong sulit ditemukan karena tidak tumbuh di semua daerah. Fungsi bambu ini juga tidak sepopuler jenis lainnya. Diameter bambu kuning sekitar 5 hingga 8 cm dengan ketebalan hingga 2 cm dan tinggi 4 hingga 10 meter. Bambu ini dikenal memiliki potensi sebagai obat herbal untuk berbagai penyakit, seperti infeksi dan hepatitis. Di perkotaan, bambu kuning sering digunakan sebagai tanaman hias di pot-pot rumah atau taman karena bentuknya yang unik dan warna artistiknya. Di daerah pedesaan, bambu ini sering dimanfaatkan sebagai pagar yang tahan lama.
 
-**Lainnya:** [Jual Bambu Steger di Kelapa Dua Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kelapa-dua-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kelapa Dua Tangerang \[Terdekat\]](/jual-bambu-steger-di-kelapa-dua-tangerang-terdekat/)
 
 ## Dapatkan Bambu Berkualitas di Banjarnegara dengan Mudah
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karawaci Tangerang [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Pulo Gadung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pulo-gadung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pulo Gadung Jakarta \[Terdekat\]](/jual-bambu-steger-di-pulo-gadung-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Karawaci Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk didapat sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar kuat jika digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipedak Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipedak-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipedak Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipedak-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Karawaci Tangerang
 

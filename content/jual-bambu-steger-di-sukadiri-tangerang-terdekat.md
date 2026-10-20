@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukadiri Tangerang [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Bojongsari Baru Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojongsari-baru-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojongsari Baru Depok \[Terdekat\]](/jual-bambu-steger-di-bojongsari-baru-depok-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Sukadiri Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini sungguh-sungguh tahan jika dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tambun Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tambun-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tambun Bekasi \[Terdekat\]](/jual-bambu-steger-di-tambun-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Sukadiri Tangerang
 

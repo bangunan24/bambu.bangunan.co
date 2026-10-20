@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilacap [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Mekarsari Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarsari-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarsari Depok \[Terdekat\]](/jual-bambu-steger-di-mekarsari-depok-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cilacap
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat sekiranya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karang Anyar Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karang-anyar-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karang Anyar Jakarta \[Terdekat\]](/jual-bambu-steger-di-karang-anyar-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cilacap
 

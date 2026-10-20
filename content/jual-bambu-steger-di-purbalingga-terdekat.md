@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Purbalingga [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Kemiri Muka Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemiri-muka-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemiri Muka Depok \[Terdekat\]](/jual-bambu-steger-di-kemiri-muka-depok-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Purbalingga
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini amat tahan sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kosambi Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kosambi-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kosambi Tangerang \[Terdekat\]](/jual-bambu-steger-di-kosambi-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Purbalingga
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Leuwinanggung Depok [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikaret Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikaret-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikaret Bogor \[Terdekat\]](/jual-bambu-steger-di-cikaret-bogor-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Leuwinanggung Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini amat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sempur Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sempur-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sempur Bogor \[Terdekat\]](/jual-bambu-steger-di-sempur-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Leuwinanggung Depok
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rambutan Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Kotabumi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kotabumi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kotabumi \[Terdekat\]](/jual-bambu-steger-di-kotabumi-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Rambutan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kemanggisan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kemanggisan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kemanggisan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kemanggisan-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Rambutan Jakarta
 

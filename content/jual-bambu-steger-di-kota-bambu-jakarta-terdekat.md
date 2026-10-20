@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kota Bambu Jakarta [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Rancaekek \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rancaekek-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rancaekek \[Terdekat\]](/jual-bambu-steger-di-rancaekek-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kota Bambu Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini amat tahan kalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cimpaeun Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimpaeun-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimpaeun Depok \[Terdekat\]](/jual-bambu-steger-di-cimpaeun-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kota Bambu Jakarta
 

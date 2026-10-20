@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Katulampa Bogor [Terdekat]](/images/jual-bambu-tali-30.png)
 
-**Lainnya:** [Jual Bambu Steger di Setiabudi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-setiabudi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Setiabudi Jakarta \[Terdekat\]](/jual-bambu-steger-di-setiabudi-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Katulampa Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini benar-benar tahan sekiranya diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cihampelas \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cihampelas-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cihampelas \[Terdekat\]](/jual-bambu-steger-di-cihampelas-terdekat/)
 
 ## Penjual Bambu Terdekat Di Katulampa Bogor
 

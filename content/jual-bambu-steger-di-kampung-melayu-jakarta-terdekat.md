@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kampung Melayu Jakarta [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Harjamukti Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-harjamukti-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Harjamukti Depok \[Terdekat\]](/jual-bambu-steger-di-harjamukti-depok-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kampung Melayu Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Parung Panjang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-parung-panjang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Parung Panjang \[Terdekat\]](/jual-bambu-steger-di-parung-panjang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Kampung Melayu Jakarta
 

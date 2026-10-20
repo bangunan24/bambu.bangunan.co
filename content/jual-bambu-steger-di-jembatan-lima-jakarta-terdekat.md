@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jembatan Lima Jakarta [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Salam Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-salam-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Salam Purwakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-salam-purwakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Jembatan Lima Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sangat kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipondoh Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipondoh-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipondoh Tangerang \[Terdekat\]](/jual-bambu-steger-di-cipondoh-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jembatan Lima Jakarta
 

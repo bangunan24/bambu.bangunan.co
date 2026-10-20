@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Salatiga [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawa Buaya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawa-buaya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawa Buaya Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawa-buaya-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Salatiga
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni tipe bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini betul-betul kuat kalau dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilodong Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilodong-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilodong Depok \[Terdekat\]](/jual-bambu-steger-di-cilodong-depok-terdekat/)
 
 ## Supplier Bambu Terdekat Di Salatiga
 

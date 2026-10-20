@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kelapa Gading Jakarta [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Kayu Manis Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kayu-manis-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kayu Manis Jakarta \[Terdekat\]](/jual-bambu-steger-di-kayu-manis-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kelapa Gading Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mampang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mampang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mampang Jakarta \[Terdekat\]](/jual-bambu-steger-di-mampang-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kelapa Gading Jakarta
 

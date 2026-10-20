@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cijantung Jakarta [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Rajeg Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rajeg-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rajeg Tangerang \[Terdekat\]](/jual-bambu-steger-di-rajeg-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Cijantung Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sungguh-sungguh tahan seandainya digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia khususnya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cinere Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cinere-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cinere Depok \[Terdekat\]](/jual-bambu-steger-di-cinere-depok-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cijantung Jakarta
 

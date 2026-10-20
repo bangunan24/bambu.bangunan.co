@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukaluyu [Terdekat]](/images/jual-bambu-tali-17.png)
 
-**Lainnya:** [Jual Bambu Steger di Senen Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-senen-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Senen Jakarta \[Terdekat\]](/jual-bambu-steger-di-senen-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Sukaluyu
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini benar-benar tahan apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cikarang Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikarang-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikarang Bekasi \[Terdekat\]](/jual-bambu-steger-di-cikarang-bekasi-terdekat/)
 
 ## Supplier Bambu Terdekat Di Sukaluyu
 

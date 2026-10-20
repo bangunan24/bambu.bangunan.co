@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalisari Jakarta [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Tanah Tinggi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanah-tinggi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanah Tinggi Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanah-tinggi-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kalisari Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yakni tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojong Gede \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojong-gede-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojong Gede \[Terdekat\]](/jual-bambu-steger-di-bojong-gede-terdekat/)
 
 ## Penjual Bambu Terdekat Di Kalisari Jakarta
 

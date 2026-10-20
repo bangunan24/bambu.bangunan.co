@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gunung Batu Bogor [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciwaringin Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciwaringin-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciwaringin Bogor \[Terdekat\]](/jual-bambu-steger-di-ciwaringin-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Gunung Batu Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapatkan karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini sangat tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Aren Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-aren-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Aren Tangerang \[Terdekat\]](/jual-bambu-steger-di-pondok-aren-tangerang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Gunung Batu Bogor
 

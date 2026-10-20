@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Megamendung [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipatat \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipatat-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipatat \[Terdekat\]](/jual-bambu-steger-di-cipatat-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Megamendung
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni macam bambu yg terbilang sulit untuk diperoleh sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini betul-betul kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Purwasari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-purwasari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Purwasari Karawang \[Terdekat\]](/jual-bambu-steger-di-purwasari-karawang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Megamendung
 

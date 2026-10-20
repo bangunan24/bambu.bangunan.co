@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cicalengka [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipeundeuy \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipeundeuy-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipeundeuy \[Terdekat\]](/jual-bambu-steger-di-cipeundeuy-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cicalengka
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini betul-betul tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Prabumulih \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-prabumulih-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Prabumulih \[Terdekat\]](/jual-bambu-steger-di-prabumulih-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cicalengka
 

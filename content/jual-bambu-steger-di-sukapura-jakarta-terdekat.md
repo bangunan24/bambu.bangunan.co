@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukapura Jakarta [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibogor Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibogor-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibogor Bogor \[Terdekat\]](/jual-bambu-steger-di-cibogor-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Sukapura Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu macam bambu yg terbilang sulit untuk didapatkan sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Slipi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-slipi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Slipi Jakarta \[Terdekat\]](/jual-bambu-steger-di-slipi-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sukapura Jakarta
 

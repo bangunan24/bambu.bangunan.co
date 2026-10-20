@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Purwasari Karawang [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatiroto \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiroto-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiroto \[Terdekat\]](/jual-bambu-steger-di-jatiroto-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Purwasari Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk diperoleh karena memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini betul-betul kuat bila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Palmerah Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-palmerah-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Palmerah Jakarta \[Terdekat\]](/jual-bambu-steger-di-palmerah-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Purwasari Karawang
 

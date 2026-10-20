@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cikalong Wetan [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Plered Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-plered-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Plered Purwakarta \[Terdekat\]](/jual-bambu-steger-di-plered-purwakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cikalong Wetan
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg sungguh-sungguh tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini sungguh-sungguh tahan jika digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Curug Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-curug-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Curug Tangerang \[Terdekat\]](/jual-bambu-steger-di-curug-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cikalong Wetan
 

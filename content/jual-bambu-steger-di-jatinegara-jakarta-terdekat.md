@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatinegara Jakarta [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Muaragembong Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-muaragembong-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Muaragembong Bekasi \[Terdekat\]](/jual-bambu-steger-di-muaragembong-bekasi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Jatinegara Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini amat tahan bila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalideres Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalideres-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalideres Jakarta \[Terdekat\]](/jual-bambu-steger-di-kalideres-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jatinegara Jakarta
 

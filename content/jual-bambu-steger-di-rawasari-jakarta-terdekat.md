@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rawasari Jakarta [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Trenggalek \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-trenggalek-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Trenggalek \[Terdekat\]](/jual-bambu-steger-di-trenggalek-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Rawasari Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini adalah macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bantar Gebang Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bantar-gebang-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bantar Gebang Bekasi \[Terdekat\]](/jual-bambu-steger-di-bantar-gebang-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Rawasari Jakarta
 

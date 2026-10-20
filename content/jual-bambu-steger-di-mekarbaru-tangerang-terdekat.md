@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mekarbaru Tangerang [Terdekat]](/images/jual-bambu-tali-39.png)
 
-**Lainnya:** [Jual Bambu Steger di Panaragan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-panaragan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Panaragan Bogor \[Terdekat\]](/jual-bambu-steger-di-panaragan-bogor-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Mekarbaru Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini benar-benar kuat apabila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatiasih Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiasih-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiasih Bekasi \[Terdekat\]](/jual-bambu-steger-di-jatiasih-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Mekarbaru Tangerang
 

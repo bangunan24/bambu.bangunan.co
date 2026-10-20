@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rawa Bunga Jakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Cililitan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cililitan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cililitan Jakarta \[Terdekat\]](/jual-bambu-steger-di-cililitan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Rawa Bunga Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah macam bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini sangat tahan apabila diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rawa Terate Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawa-terate-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawa Terate Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawa-terate-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Rawa Bunga Jakarta
 

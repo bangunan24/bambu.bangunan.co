@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cinere Depok [Terdekat]](/images/jual-bambu-tali-35.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciampel Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciampel-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciampel Karawang \[Terdekat\]](/jual-bambu-steger-di-ciampel-karawang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cinere Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat apabila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukamaju Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukamaju-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukamaju Depok \[Terdekat\]](/jual-bambu-steger-di-sukamaju-depok-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cinere Depok
 

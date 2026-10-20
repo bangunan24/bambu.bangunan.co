@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tarumajaya Bekasi [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Karangasem \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangasem-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangasem \[Terdekat\]](/jual-bambu-steger-di-karangasem-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Tarumajaya Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat kalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mekarbaru Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarbaru-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarbaru Tangerang \[Terdekat\]](/jual-bambu-steger-di-mekarbaru-tangerang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Tarumajaya Bekasi
 

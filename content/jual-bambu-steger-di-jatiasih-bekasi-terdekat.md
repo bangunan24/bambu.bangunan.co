@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatiasih Bekasi [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Kuningan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kuningan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kuningan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kuningan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Jatiasih Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk didapatkan karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat bila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kediri \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kediri-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kediri \[Terdekat\]](/jual-bambu-steger-di-kediri-terdekat/)
 
 ## Supplier Bambu Terdekat Di Jatiasih Bekasi
 

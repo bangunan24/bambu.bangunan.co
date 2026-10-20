@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukatani Bekasi [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Duri Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-duri-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Duri Jakarta \[Terdekat\]](/jual-bambu-steger-di-duri-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Sukatani Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini betul-betul kuat kalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pesanggrahan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pesanggrahan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pesanggrahan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pesanggrahan-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Sukatani Bekasi
 

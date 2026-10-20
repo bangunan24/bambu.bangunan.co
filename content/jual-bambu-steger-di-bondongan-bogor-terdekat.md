@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bondongan Bogor [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Bubulak Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bubulak-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bubulak Bogor \[Terdekat\]](/jual-bambu-steger-di-bubulak-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Bondongan Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di semua daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini sangat kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tajur Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tajur-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tajur Bogor \[Terdekat\]](/jual-bambu-steger-di-tajur-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Bondongan Bogor
 

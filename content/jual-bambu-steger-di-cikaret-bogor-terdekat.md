@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cikaret Bogor [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Lubang Buaya Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lubang-buaya-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lubang Buaya Jakarta \[Terdekat\]](/jual-bambu-steger-di-lubang-buaya-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cikaret Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu macam bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini amat kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebayoran Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebayoran-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebayoran Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebayoran-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cikaret Bogor
 

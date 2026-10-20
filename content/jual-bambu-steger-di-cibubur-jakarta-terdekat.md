@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibubur Jakarta [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Kembangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kembangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kembangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kembangan-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cibubur Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk diperoleh karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini sangat kuat bila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kota Bambu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kota-bambu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kota Bambu Jakarta \[Terdekat\]](/jual-bambu-steger-di-kota-bambu-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cibubur Jakarta
 

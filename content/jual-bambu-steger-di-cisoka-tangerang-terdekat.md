@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cisoka Tangerang [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Gondangdia Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gondangdia-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gondangdia Jakarta \[Terdekat\]](/jual-bambu-steger-di-gondangdia-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Cisoka Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini betul-betul kuat jikalau dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pegadungan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pegadungan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pegadungan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pegadungan-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cisoka Tangerang
 

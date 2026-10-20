@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatijajar Depok [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Kalipuro \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalipuro-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalipuro \[Terdekat\]](/jual-bambu-steger-di-kalipuro-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Jatijajar Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yaitu jenis bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang betul-betul tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil tetapi bambu kuning ini betul-betul tahan seandainya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mojosari \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mojosari-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mojosari \[Terdekat\]](/jual-bambu-steger-di-mojosari-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jatijajar Depok
 

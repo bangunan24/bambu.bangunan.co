@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jonggol [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Cipulir Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipulir-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipulir Jakarta \[Terdekat\]](/jual-bambu-steger-di-cipulir-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Jonggol
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg benar-benar tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini betul-betul tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Pinang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-pinang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Pinang Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-pinang-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jonggol
 

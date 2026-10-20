@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kronjo Tangerang [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Leuwiliang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-leuwiliang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Leuwiliang \[Terdekat\]](/jual-bambu-steger-di-leuwiliang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Kronjo Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu macam bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini betul-betul kuat kalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Kacang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-kacang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Kacang Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-kacang-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kronjo Tangerang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pasar Minggu Jakarta [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Jayanti Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jayanti-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jayanti Tangerang \[Terdekat\]](/jual-bambu-steger-di-jayanti-tangerang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pasar Minggu Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni tipe bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sangat tahan sekiranya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Padaherang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-padaherang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Padaherang \[Terdekat\]](/jual-bambu-steger-di-padaherang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pasar Minggu Jakarta
 

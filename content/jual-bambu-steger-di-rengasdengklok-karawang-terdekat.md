@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rengasdengklok Karawang [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Jembatan Lima Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jembatan-lima-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jembatan Lima Jakarta \[Terdekat\]](/jual-bambu-steger-di-jembatan-lima-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Rengasdengklok Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini benar-benar kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia khususnya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ngawi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ngawi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ngawi \[Terdekat\]](/jual-bambu-steger-di-ngawi-terdekat/)
 
 ## Penjual Bambu Terdekat Di Rengasdengklok Karawang
 

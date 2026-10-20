@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilincing Jakarta [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Megamendung \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-megamendung-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Megamendung \[Terdekat\]](/jual-bambu-steger-di-megamendung-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cilincing Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk diperoleh sebab memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini betul-betul kuat seandainya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karangbahagia Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangbahagia-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangbahagia Bekasi \[Terdekat\]](/jual-bambu-steger-di-karangbahagia-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cilincing Jakarta
 

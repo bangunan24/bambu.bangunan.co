@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pacitan [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Telukjambe Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-telukjambe-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Telukjambe Karawang \[Terdekat\]](/jual-bambu-steger-di-telukjambe-karawang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Pacitan
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini sungguh-sungguh tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Batuceper Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batuceper-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batuceper Tangerang \[Terdekat\]](/jual-bambu-steger-di-batuceper-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pacitan
 

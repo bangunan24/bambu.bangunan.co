@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pebayuran Bekasi [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Ngawi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ngawi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ngawi \[Terdekat\]](/jual-bambu-steger-di-ngawi-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Pebayuran Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk diperoleh karena memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini betul-betul kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jembatan Lima Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jembatan-lima-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jembatan Lima Jakarta \[Terdekat\]](/jual-bambu-steger-di-jembatan-lima-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Pebayuran Bekasi
 

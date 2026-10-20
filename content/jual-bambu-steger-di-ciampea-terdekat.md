@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciampea [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibubur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibubur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibubur Jakarta \[Terdekat\]](/jual-bambu-steger-di-cibubur-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Ciampea
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini amat kuat kalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Situ Gede Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-situ-gede-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Situ Gede Bogor \[Terdekat\]](/jual-bambu-steger-di-situ-gede-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Ciampea
 

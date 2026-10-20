@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bangka Jakarta [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebomas \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebomas-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebomas \[Terdekat\]](/jual-bambu-steger-di-kebomas-terdekat/)
 
 ## Mengenal Lebih Dekat Jenis Bambu dan Kegunaannya di Bangka Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung dikenal dengan warnanya yang khas, yaitu hitam atau hijau kehitaman
 
 Bambu kuning relatif sulit ditemukan karena tidak tumbuh di semua daerah dan tidak banyak digunakan oleh masyarakat umum. Diameter bambu ini sekitar 5-8 cm, dengan tinggi 4-10 meter dan ketebalan hingga 2 cm. Selain sebagai tanaman hias, bambu kuning juga dikenal memiliki khasiat obat herbal untuk berbagai penyakit. Banyak yang menanam bambu kuning mini di pot sebagai dekorasi rumah karena penampilannya yang unik dan artistik. Di daerah pedesaan, bambu kuning sering digunakan sebagai pagar karena ketahanannya yang tinggi. 
 
-**Lainnya:** [Jual Bambu Steger di Loji Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-loji-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Loji Bogor \[Terdekat\]](/jual-bambu-steger-di-loji-bogor-terdekat/)
 
 ## Jual Bambu Steger Terdekat di Bangka Jakarta
 

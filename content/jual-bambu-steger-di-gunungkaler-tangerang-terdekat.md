@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gunungkaler Tangerang [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Jembatan Besi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jembatan-besi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jembatan Besi Jakarta \[Terdekat\]](/jual-bambu-steger-di-jembatan-besi-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Gunungkaler Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini ialah jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini amat kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pabaton Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pabaton-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pabaton Bogor \[Terdekat\]](/jual-bambu-steger-di-pabaton-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Gunungkaler Tangerang
 

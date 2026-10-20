@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sempur Bogor [Terdekat]](/images/jual-bambu-tali-26.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikoko Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikoko-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikoko Jakarta \[Terdekat\]](/jual-bambu-steger-di-cikoko-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Sempur Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Semper Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-semper-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Semper Jakarta \[Terdekat\]](/jual-bambu-steger-di-semper-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Sempur Bogor
 

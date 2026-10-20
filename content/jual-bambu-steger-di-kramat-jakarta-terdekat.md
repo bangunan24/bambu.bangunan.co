@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kramat Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Cakung Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cakung-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cakung Jakarta \[Terdekat\]](/jual-bambu-steger-di-cakung-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kramat Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini betul-betul tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukoharjo \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukoharjo-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukoharjo \[Terdekat\]](/jual-bambu-steger-di-sukoharjo-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kramat Jakarta
 

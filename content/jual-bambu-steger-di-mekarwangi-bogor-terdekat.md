@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mekarwangi Bogor [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Demak \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-demak-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Demak \[Terdekat\]](/jual-bambu-steger-di-demak-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mekarwangi Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini benar-benar tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pinangsia Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pinangsia-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pinangsia Jakarta \[Terdekat\]](/jual-bambu-steger-di-pinangsia-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Mekarwangi Bogor
 

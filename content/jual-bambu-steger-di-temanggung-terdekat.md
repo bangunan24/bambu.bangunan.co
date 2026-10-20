@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Temanggung [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Windusari \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-windusari-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Windusari \[Terdekat\]](/jual-bambu-steger-di-windusari-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Temanggung
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah tipe bambu yg terbilang susah untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil namun bambu kuning ini amat kuat apabila diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Babakan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-babakan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Babakan Bogor \[Terdekat\]](/jual-bambu-steger-di-babakan-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Temanggung
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mangga Dua Jakarta [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Mekarbaru Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarbaru-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarbaru Tangerang \[Terdekat\]](/jual-bambu-steger-di-mekarbaru-tangerang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Mangga Dua Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini amat kuat bila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Karangasem \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangasem-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangasem \[Terdekat\]](/jual-bambu-steger-di-karangasem-terdekat/)
 
 ## Supplier Bambu Terdekat Di Mangga Dua Jakarta
 

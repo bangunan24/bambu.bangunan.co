@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebon Baru Jakarta [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Darangdan Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-darangdan-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Darangdan Purwakarta \[Terdekat\]](/jual-bambu-steger-di-darangdan-purwakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kebon Baru Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk diperoleh karena memang tidak tumbuh di segala tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pisangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pisangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pisangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pisangan-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kebon Baru Jakarta
 

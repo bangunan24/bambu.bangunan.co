@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cikande [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Cisalak Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisalak-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisalak Depok \[Terdekat\]](/jual-bambu-steger-di-cisalak-depok-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cikande
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yg terbilang susah untuk didapat karena memang tidak tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yg bisa dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jikalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat kalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Kopi Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-kopi-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Kopi Jakarta \[Terdekat\]](/jual-bambu-steger-di-pondok-kopi-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cikande
 

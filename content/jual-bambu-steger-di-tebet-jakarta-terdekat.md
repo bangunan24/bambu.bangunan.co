@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tebet Jakarta [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Pancoran Mas Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pancoran-mas-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pancoran Mas Depok \[Terdekat\]](/jual-bambu-steger-di-pancoran-mas-depok-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tebet Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini biasa dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini sangat kuat kalau diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jati Pulo Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jati-pulo-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jati Pulo Jakarta \[Terdekat\]](/jual-bambu-steger-di-jati-pulo-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Tebet Jakarta
 

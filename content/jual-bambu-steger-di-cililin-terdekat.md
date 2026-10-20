@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cililin [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Meruyung Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-meruyung-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Meruyung Depok \[Terdekat\]](/jual-bambu-steger-di-meruyung-depok-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Cililin
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini sungguh-sungguh kuat sekiranya diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalisari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalisari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalisari Jakarta \[Terdekat\]](/jual-bambu-steger-di-kalisari-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cililin
 

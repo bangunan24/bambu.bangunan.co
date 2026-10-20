@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rancamaya Bogor [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Bungur Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bungur-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bungur Jakarta \[Terdekat\]](/jual-bambu-steger-di-bungur-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Rancamaya Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yang terbilang sulit untuk diperoleh karena memang tidak tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini betul-betul tahan jika dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sungai Bambu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sungai-bambu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sungai Bambu Jakarta \[Terdekat\]](/jual-bambu-steger-di-sungai-bambu-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Rancamaya Bogor
 

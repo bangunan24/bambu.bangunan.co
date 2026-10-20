@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jembatan Besi Jakarta [Terdekat]](/images/jual-bambu-tali-38.png)
 
-**Lainnya:** [Jual Bambu Steger di Kota Bambu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kota-bambu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kota Bambu Jakarta \[Terdekat\]](/jual-bambu-steger-di-kota-bambu-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Jembatan Besi Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk diperoleh karena memang tdk tumbuh di segala tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sungguh-sungguh kuat kalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kembangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kembangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kembangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kembangan-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Jembatan Besi Jakarta
 

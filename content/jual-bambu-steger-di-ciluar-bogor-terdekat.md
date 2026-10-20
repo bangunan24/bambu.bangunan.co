@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciluar Bogor [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Petukangan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-petukangan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Petukangan Jakarta \[Terdekat\]](/jual-bambu-steger-di-petukangan-jakarta-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Ciluar Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini amat tahan kalau diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Dukuh Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-dukuh-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Dukuh Jakarta \[Terdekat\]](/jual-bambu-steger-di-dukuh-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ciluar Bogor
 

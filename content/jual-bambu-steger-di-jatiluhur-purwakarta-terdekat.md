@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatiluhur Purwakarta [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Paledang Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-paledang-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Paledang Bogor \[Terdekat\]](/jual-bambu-steger-di-paledang-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Jatiluhur Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah macam bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini amat tahan apabila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jatisampurna Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatisampurna-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatisampurna Bekasi \[Terdekat\]](/jual-bambu-steger-di-jatisampurna-bekasi-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Jatiluhur Purwakarta
 

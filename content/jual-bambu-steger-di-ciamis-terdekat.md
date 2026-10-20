@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciamis [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Sindangrasa Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindangrasa-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindangrasa Bogor \[Terdekat\]](/jual-bambu-steger-di-sindangrasa-bogor-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ciamis
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini amat tahan kalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cicalengka \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cicalengka-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cicalengka \[Terdekat\]](/jual-bambu-steger-di-cicalengka-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ciamis
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalibata Jakarta [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Rembang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rembang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rembang \[Terdekat\]](/jual-bambu-steger-di-rembang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Kalibata Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang benar-benar tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat apabila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciledug Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciledug-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciledug Tangerang \[Terdekat\]](/jual-bambu-steger-di-ciledug-tangerang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kalibata Jakarta
 

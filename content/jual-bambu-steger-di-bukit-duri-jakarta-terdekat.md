@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bukit Duri Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Kebon Melati Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-melati-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Melati Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-melati-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Bukit Duri Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk diperoleh karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini benar-benar kuat seandainya diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Legok Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-legok-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Legok Tangerang \[Terdekat\]](/jual-bambu-steger-di-legok-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Bukit Duri Jakarta
 

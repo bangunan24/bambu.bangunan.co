@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibuaya Karawang [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Cimpaeun Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimpaeun-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimpaeun Depok \[Terdekat\]](/jual-bambu-steger-di-cimpaeun-depok-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cibuaya Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sungguh-sungguh tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini benar-benar kuat kalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak ditemui di indonesia khususnya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rancaekek \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rancaekek-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rancaekek \[Terdekat\]](/jual-bambu-steger-di-rancaekek-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cibuaya Karawang
 

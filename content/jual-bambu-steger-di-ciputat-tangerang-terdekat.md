@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciputat Tangerang [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Setu Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-setu-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Setu Bekasi \[Terdekat\]](/jual-bambu-steger-di-setu-bekasi-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Ciputat Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg benar-benar tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini sangat tahan kalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cigombong \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cigombong-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cigombong \[Terdekat\]](/jual-bambu-steger-di-cigombong-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ciputat Tangerang
 

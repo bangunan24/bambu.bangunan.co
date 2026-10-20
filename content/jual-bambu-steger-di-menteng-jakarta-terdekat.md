@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Menteng Jakarta [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Baktijaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-baktijaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Baktijaya Depok \[Terdekat\]](/jual-bambu-steger-di-baktijaya-depok-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Menteng Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni tipe bambu yg terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Warakas Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-warakas-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Warakas Jakarta \[Terdekat\]](/jual-bambu-steger-di-warakas-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Menteng Jakarta
 

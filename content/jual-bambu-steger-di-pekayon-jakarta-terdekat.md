@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pekayon Jakarta [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Sindang Jaya Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindang-jaya-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindang Jaya Tangerang \[Terdekat\]](/jual-bambu-steger-di-sindang-jaya-tangerang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Pekayon Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Jika di desa-desa bambu kuning ini lazim diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini betul-betul tahan sekiranya digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia khususnya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cideng Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cideng-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cideng Jakarta \[Terdekat\]](/jual-bambu-steger-di-cideng-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pekayon Jakarta
 

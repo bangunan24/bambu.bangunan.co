@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Petamburan Jakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Kalianyar Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalianyar-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalianyar Jakarta \[Terdekat\]](/jual-bambu-steger-di-kalianyar-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Petamburan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh kuat apabila dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Munjul Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-munjul-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Munjul Jakarta \[Terdekat\]](/jual-bambu-steger-di-munjul-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Petamburan Jakarta
 

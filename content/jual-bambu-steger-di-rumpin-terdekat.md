@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rumpin [Terdekat]](/images/jual-bambu-tali-29.png)
 
-**Lainnya:** [Jual Bambu Steger di Kedung Waringin Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kedung-waringin-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kedung Waringin Bogor \[Terdekat\]](/jual-bambu-steger-di-kedung-waringin-bogor-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Rumpin
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu macam bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini umum diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini sangat kuat sekiranya digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kresek Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kresek-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kresek Tangerang \[Terdekat\]](/jual-bambu-steger-di-kresek-tangerang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Rumpin
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibogor Bogor [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Jati Padang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jati-padang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jati Padang Jakarta \[Terdekat\]](/jual-bambu-steger-di-jati-padang-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cibogor Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini adalah tipe bambu yg terbilang sulit untuk didapat karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tidak banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini sungguh-sungguh tahan jikalau dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pandeglang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pandeglang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pandeglang \[Terdekat\]](/jual-bambu-steger-di-pandeglang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cibogor Bogor
 

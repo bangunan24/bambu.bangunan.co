@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pancoran Mas Depok [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Mampang Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mampang-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mampang Jakarta \[Terdekat\]](/jual-bambu-steger-di-mampang-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pancoran Mas Depok
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk didapat karena memang tdk tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat bila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kayu Manis Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kayu-manis-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kayu Manis Jakarta \[Terdekat\]](/jual-bambu-steger-di-kayu-manis-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pancoran Mas Depok
 

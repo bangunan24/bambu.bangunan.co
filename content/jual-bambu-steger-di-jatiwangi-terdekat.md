@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatiwangi [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Tambelang Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tambelang-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tambelang Bekasi \[Terdekat\]](/jual-bambu-steger-di-tambelang-bekasi-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Jatiwangi
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di semua daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sangat tahan bila dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bondongan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bondongan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bondongan Bogor \[Terdekat\]](/jual-bambu-steger-di-bondongan-bogor-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Jatiwangi
 

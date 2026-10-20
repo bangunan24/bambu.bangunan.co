@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cawang Jakarta [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Wanayasa Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wanayasa-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wanayasa Purwakarta \[Terdekat\]](/jual-bambu-steger-di-wanayasa-purwakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Cawang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yg terbilang susah untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini sungguh-sungguh kuat kalau digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Balaraja Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-balaraja-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Balaraja Tangerang \[Terdekat\]](/jual-bambu-steger-di-balaraja-tangerang-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cawang Jakarta
 

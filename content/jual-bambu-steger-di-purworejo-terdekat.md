@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Purworejo [Terdekat]](/images/jual-bambu-tali-34.png)
 
-**Lainnya:** [Jual Bambu Steger di Cinere Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cinere-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cinere Depok \[Terdekat\]](/jual-bambu-steger-di-cinere-depok-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Purworejo
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini sungguh-sungguh kuat sekiranya diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rajeg Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rajeg-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rajeg Tangerang \[Terdekat\]](/jual-bambu-steger-di-rajeg-tangerang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Purworejo
 

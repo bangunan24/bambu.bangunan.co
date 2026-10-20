@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Karangwage [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Petogogan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-petogogan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Petogogan Jakarta \[Terdekat\]](/jual-bambu-steger-di-petogogan-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Karangwage
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk didapat sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yaitu tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini amat tahan kalau digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia terutama di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Duren Sawit Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-duren-sawit-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Duren Sawit Jakarta \[Terdekat\]](/jual-bambu-steger-di-duren-sawit-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Karangwage
 

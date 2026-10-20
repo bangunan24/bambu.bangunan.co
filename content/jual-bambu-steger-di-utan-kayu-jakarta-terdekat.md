@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Utan Kayu Jakarta [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Cicalengka \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cicalengka-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cicalengka \[Terdekat\]](/jual-bambu-steger-di-cicalengka-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Utan Kayu Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sangat kuat jika dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sindangrasa Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sindangrasa-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sindangrasa Bogor \[Terdekat\]](/jual-bambu-steger-di-sindangrasa-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Utan Kayu Jakarta
 

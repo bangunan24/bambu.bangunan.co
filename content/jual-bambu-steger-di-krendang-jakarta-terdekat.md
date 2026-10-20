@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Krendang Jakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Bintaro Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bintaro-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bintaro Jakarta \[Terdekat\]](/jual-bambu-steger-di-bintaro-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Krendang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah jenis bambu yang terbilang susah untuk didapat karena memang tidak tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini sangat kuat seandainya digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yang banyak dijumpai di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tarumajaya Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tarumajaya-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tarumajaya Bekasi \[Terdekat\]](/jual-bambu-steger-di-tarumajaya-bekasi-terdekat/)
 
 ## Supplier Bambu Terdekat Di Krendang Jakarta
 

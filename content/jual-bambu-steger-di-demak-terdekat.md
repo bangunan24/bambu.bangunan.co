@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Demak [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciomas \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciomas-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciomas \[Terdekat\]](/jual-bambu-steger-di-ciomas-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Demak
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yakni macam bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yg fungsinya tidak terlalu dapat diandalkan yaitu tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini betul-betul tahan sekiranya diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ragunan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ragunan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ragunan Jakarta \[Terdekat\]](/jual-bambu-steger-di-ragunan-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Demak
 

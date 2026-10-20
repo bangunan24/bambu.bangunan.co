@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Rawa Badak Jakarta [Terdekat]](/images/jual-bambu-tali-22.png)
 
-**Lainnya:** [Jual Bambu Steger di Serpong Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serpong-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serpong Tangerang \[Terdekat\]](/jual-bambu-steger-di-serpong-tangerang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Rawa Badak Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah macam bambu yg terbilang susah untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil akan tetapi bambu kuning ini amat tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutama di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cijeruk \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cijeruk-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cijeruk \[Terdekat\]](/jual-bambu-steger-di-cijeruk-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Rawa Badak Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kemiri Tangerang [Terdekat]](/images/jual-bambu-tali-11.png)
 
-**Lainnya:** [Jual Bambu Steger di Jonggol \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jonggol-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jonggol \[Terdekat\]](/jual-bambu-steger-di-jonggol-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kemiri Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah tipe bambu yg terbilang sulit untuk didapat sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang benar-benar tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini sungguh-sungguh kuat jika digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mustika Jaya Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mustika-jaya-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mustika Jaya Bekasi \[Terdekat\]](/jual-bambu-steger-di-mustika-jaya-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kemiri Tangerang
 

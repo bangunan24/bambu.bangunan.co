@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kalimulya Depok [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Kalisari Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalisari-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalisari Jakarta \[Terdekat\]](/jual-bambu-steger-di-kalisari-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Kalimulya Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah macam bambu yang terbilang sulit untuk didapat sebab memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang amat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Sekiranya di desa-desa bambu kuning ini biasa diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh tahan jika diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Meruyung Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-meruyung-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Meruyung Depok \[Terdekat\]](/jual-bambu-steger-di-meruyung-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kalimulya Depok
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sukasari Purwakarta [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Padalarang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-padalarang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Padalarang \[Terdekat\]](/jual-bambu-steger-di-padalarang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Sukasari Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg amat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil tetapi bambu kuning ini benar-benar kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jayakerta Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jayakerta-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jayakerta Karawang \[Terdekat\]](/jual-bambu-steger-di-jayakerta-karawang-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Sukasari Purwakarta
 

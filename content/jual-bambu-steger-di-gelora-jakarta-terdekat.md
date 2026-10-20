@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gelora Jakarta [Terdekat]](/images/jual-bambu-tali-33.png)
 
-**Lainnya:** [Jual Bambu Steger di Banjarnegara \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-banjarnegara-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Banjarnegara \[Terdekat\]](/jual-bambu-steger-di-banjarnegara-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Gelora Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yaitu jenis bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Sekiranya di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini sangat tahan jikalau dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tuban \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tuban-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tuban \[Terdekat\]](/jual-bambu-steger-di-tuban-terdekat/)
 
 ## Penjual Bambu Terdekat Di Gelora Jakarta
 

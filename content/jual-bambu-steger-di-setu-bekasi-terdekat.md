@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Setu Bekasi [Terdekat]](/images/jual-bambu-tali-27.png)
 
-**Lainnya:** [Jual Bambu Steger di Pasar Minggu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasar-minggu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasar Minggu Jakarta \[Terdekat\]](/jual-bambu-steger-di-pasar-minggu-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Setu Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini amat tahan jikalau dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Halim Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-halim-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Halim Jakarta \[Terdekat\]](/jual-bambu-steger-di-halim-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Setu Bekasi
 

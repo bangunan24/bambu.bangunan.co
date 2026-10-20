@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Guntur Jakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawa Terate Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawa-terate-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawa Terate Jakarta \[Terdekat\]](/jual-bambu-steger-di-rawa-terate-jakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Guntur Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat diandalkan yakni tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini sangat tahan seandainya diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cililitan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cililitan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cililitan Jakarta \[Terdekat\]](/jual-bambu-steger-di-cililitan-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Guntur Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tomang Jakarta [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Salatiga \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-salatiga-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Salatiga \[Terdekat\]](/jual-bambu-steger-di-salatiga-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Tomang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini adalah tipe bambu yang terbilang sulit untuk didapat karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sungguh-sungguh tahan bila diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di tempat-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cilamaya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilamaya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilamaya Karawang \[Terdekat\]](/jual-bambu-steger-di-cilamaya-karawang-terdekat/)
 
 ## Penjual Bambu Terdekat Di Tomang Jakarta
 

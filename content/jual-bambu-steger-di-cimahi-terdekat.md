@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cimahi [Terdekat]](/images/jual-bambu-tali-06.png)
 
-**Lainnya:** [Jual Bambu Steger di Kampung Melayu Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kampung-melayu-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kampung Melayu Jakarta \[Terdekat\]](/jual-bambu-steger-di-kampung-melayu-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cimahi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk didapatkan karena memang tidak tumbuh di seluruh tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang amat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini amat kuat sekiranya dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Menteng Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-menteng-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Menteng Bogor \[Terdekat\]](/jual-bambu-steger-di-menteng-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Cimahi
 

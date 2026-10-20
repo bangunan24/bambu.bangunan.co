@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibodas Tangerang [Terdekat]](/images/jual-bambu-tali-18.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikalong Wetan \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikalong-wetan-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikalong Wetan \[Terdekat\]](/jual-bambu-steger-di-cikalong-wetan-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Cibodas Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini ialah jenis bambu yg terbilang susah untuk diperoleh sebab memang tdk tumbuh di seluruh tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat sekiranya digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Serengseng Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-serengseng-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Serengseng Jakarta \[Terdekat\]](/jual-bambu-steger-di-serengseng-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cibodas Tangerang
 

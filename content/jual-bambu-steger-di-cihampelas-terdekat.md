@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cihampelas [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Lemahabang Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lemahabang-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lemahabang Karawang \[Terdekat\]](/jual-bambu-steger-di-lemahabang-karawang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Cihampelas
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni jenis bambu yang terbilang susah untuk diperoleh karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang sungguh-sungguh tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul kuat kalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebon Manggis Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebon-manggis-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebon Manggis Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebon-manggis-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cihampelas
 

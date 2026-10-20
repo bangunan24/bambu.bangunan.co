@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Magetan [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Kalimulya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalimulya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalimulya Depok \[Terdekat\]](/jual-bambu-steger-di-kalimulya-depok-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Magetan
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk diperoleh karena memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini benar-benar tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia khususnya di tempat-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Muara Bulian \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-muara-bulian-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Muara Bulian \[Terdekat\]](/jual-bambu-steger-di-muara-bulian-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Magetan
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Lubang Buaya Jakarta [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Tegalwaru Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tegalwaru-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tegalwaru Karawang \[Terdekat\]](/jual-bambu-steger-di-tegalwaru-karawang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Lubang Buaya Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yg ber
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yang bisa dibudidayakan dan salah satu tipe bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sangat tahan jika diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Batutulis Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-batutulis-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Batutulis Bogor \[Terdekat\]](/jual-bambu-steger-di-batutulis-bogor-terdekat/)
 
 ## Penjual Bambu Terdekat Di Lubang Buaya Jakarta
 

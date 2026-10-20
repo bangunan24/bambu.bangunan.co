@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Gunung Sindur [Terdekat]](/images/jual-bambu-tali-12.png)
 
-**Lainnya:** [Jual Bambu Steger di Cilamaya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cilamaya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cilamaya Karawang \[Terdekat\]](/jual-bambu-steger-di-cilamaya-karawang-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Gunung Sindur
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapatkan karena memang tidak tumbuh di seluruh tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yakni tidak banyak dipakai oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Bila di desa-desa bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski diameternya kecil namun bambu kuning ini benar-benar tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Salatiga \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-salatiga-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Salatiga \[Terdekat\]](/jual-bambu-steger-di-salatiga-terdekat/)
 
 ## Penjual Bambu Terdekat Di Gunung Sindur
 

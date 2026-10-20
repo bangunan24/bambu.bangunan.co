@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kemanggisan Jakarta [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Kiara Pedes Purwakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kiara-pedes-purwakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kiara Pedes Purwakarta \[Terdekat\]](/jual-bambu-steger-di-kiara-pedes-purwakarta-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Kemanggisan Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah tipe bambu yg terbilang susah untuk didapatkan karena memang tidak tumbuh di segala daerah. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yg bisa dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini amat kuat apabila dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kertamaya Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kertamaya-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kertamaya Bogor \[Terdekat\]](/jual-bambu-steger-di-kertamaya-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kemanggisan Jakarta
 

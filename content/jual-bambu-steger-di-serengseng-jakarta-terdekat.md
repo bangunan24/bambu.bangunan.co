@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Serengseng Jakarta [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Tambun Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tambun-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tambun Bekasi \[Terdekat\]](/jual-bambu-steger-di-tambun-bekasi-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Serengseng Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah macam bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yaitu tidak banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yg artistik. Kalau di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini benar-benar tahan jikalau dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia khususnya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Bojongsari Baru Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bojongsari-baru-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bojongsari Baru Depok \[Terdekat\]](/jual-bambu-steger-di-bojongsari-baru-depok-terdekat/)
 
 ## Penjual Bambu Terdekat Di Serengseng Jakarta
 

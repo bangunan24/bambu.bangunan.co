@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Sepatan Tangerang [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Rawalumbu Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawalumbu-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawalumbu Bekasi \[Terdekat\]](/jual-bambu-steger-di-rawalumbu-bekasi-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Sepatan Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk diperoleh karena memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yaitu tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sungguh-sungguh tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu tipe bambu yg bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil tetapi bambu kuning ini betul-betul tahan jika dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah macam bambu yang banyak dijumpai di indonesia terutama di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cililin \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cililin-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cililin \[Terdekat\]](/jual-bambu-steger-di-cililin-terdekat/)
 
 ## Supplier Bambu Terdekat Di Sepatan Tangerang
 

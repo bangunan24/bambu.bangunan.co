@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Lawang Gintung Bogor [Terdekat]](/images/jual-bambu-tali-01.png)
 
-**Lainnya:** [Jual Bambu Steger di Kramat jati Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kramat-jati-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kramat jati Jakarta \[Terdekat\]](/jual-bambu-steger-di-kramat-jati-jakarta-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Lawang Gintung Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk didapat sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yg sungguh-sungguh tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Jikalau di desa-desa bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini sungguh-sungguh tahan jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutama di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kelapa Gading Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kelapa-gading-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kelapa Gading Jakarta \[Terdekat\]](/jual-bambu-steger-di-kelapa-gading-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Lawang Gintung Bogor
 

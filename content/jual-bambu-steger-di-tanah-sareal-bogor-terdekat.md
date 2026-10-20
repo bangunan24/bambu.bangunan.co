@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tanah Sareal Bogor [Terdekat]](/images/jual-bambu-tali-15.png)
 
-**Lainnya:** [Jual Bambu Steger di Kramat Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kramat-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kramat Jakarta \[Terdekat\]](/jual-bambu-steger-di-kramat-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Tanah Sareal Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini adalah tipe bambu yang terbilang susah untuk didapat karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yang sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Kalau di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sangat tahan jikalau diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia terutama di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kelapa Nunggal \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kelapa-nunggal-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kelapa Nunggal \[Terdekat\]](/jual-bambu-steger-di-kelapa-nunggal-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Tanah Sareal Bogor
 

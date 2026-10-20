@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciseeng [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Jatiwangi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jatiwangi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jatiwangi \[Terdekat\]](/jual-bambu-steger-di-jatiwangi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ciseeng
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah jenis bambu yg terbilang sulit untuk diperoleh sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu dapat diandalkan yakni tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yang dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini lazim dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meski lingkarannya kecil tetapi bambu kuning ini amat kuat apabila dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yang banyak ditemui di indonesia khususnya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pakisjaya Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pakisjaya-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pakisjaya Karawang \[Terdekat\]](/jual-bambu-steger-di-pakisjaya-karawang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Ciseeng
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Halim Jakarta [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Gandul Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gandul-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gandul Depok \[Terdekat\]](/jual-bambu-steger-di-gandul-depok-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Halim Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di semua daerah. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang betul-betul tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu tipe bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jika di perkampungan bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski diameternya kecil tetapi bambu kuning ini betul-betul tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pemalang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pemalang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pemalang \[Terdekat\]](/jual-bambu-steger-di-pemalang-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Halim Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pangkalan Karawang [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Ngamprah \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ngamprah-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ngamprah \[Terdekat\]](/jual-bambu-steger-di-ngamprah-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pangkalan Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini ialah tipe bambu yang terbilang susah untuk diperoleh sebab memang tidak tumbuh di semua daerah. Juga yg fungsinya tidak terlalu dapat diandalkan yakni tidak banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi mempunyai ketebalan yang sangat tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil namun bambu kuning ini amat tahan kalau dipakai untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jepara \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jepara-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jepara \[Terdekat\]](/jual-bambu-steger-di-jepara-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pangkalan Karawang
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Serua Depok [Terdekat]](/images/jual-bambu-tali-03.png)
 
-**Lainnya:** [Jual Bambu Steger di Ragunan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ragunan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ragunan Jakarta \[Terdekat\]](/jual-bambu-steger-di-ragunan-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Serua Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini yakni jenis bambu yang terbilang sulit untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tidak terlalu dapat dipercaya yakni tidak banyak dipakai oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini biasa diterapkan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini benar-benar kuat sekiranya dipakai untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yang banyak dijumpai di indonesia khususnya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciomas \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciomas-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciomas \[Terdekat\]](/jual-bambu-steger-di-ciomas-terdekat/)
 
 ## Penjual Bambu Terdekat Di Serua Depok
 

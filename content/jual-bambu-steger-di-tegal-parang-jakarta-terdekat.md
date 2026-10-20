@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tegal Parang Jakarta [Terdekat]](/images/jual-bambu-tali-07.png)
 
-**Lainnya:** [Jual Bambu Steger di Wonosari \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-wonosari-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Wonosari \[Terdekat\]](/jual-bambu-steger-di-wonosari-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Tegal Parang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu tipe bambu yg terbilang sulit untuk didapat karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa dipercaya yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu tipe bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Bila di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini benar-benar tahan jika digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yg banyak dijumpai di indonesia terutama di daerah-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Angke Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-angke-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Angke Jakarta \[Terdekat\]](/jual-bambu-steger-di-angke-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Tegal Parang Jakarta
 

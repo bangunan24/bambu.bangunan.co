@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Duren Sawit Jakarta [Terdekat]](/images/jual-bambu-tali-32.png)
 
-**Lainnya:** [Jual Bambu Steger di Babakan Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-babakan-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Babakan Bogor \[Terdekat\]](/jual-bambu-steger-di-babakan-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Duren Sawit Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini adalah jenis bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di semua tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diterapkan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Sekiranya di perkampungan bambu kuning ini umum diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini sungguh-sungguh tahan seandainya diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutama di tempat-tempat yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Windusari \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-windusari-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Windusari \[Terdekat\]](/jual-bambu-steger-di-windusari-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Duren Sawit Jakarta
 

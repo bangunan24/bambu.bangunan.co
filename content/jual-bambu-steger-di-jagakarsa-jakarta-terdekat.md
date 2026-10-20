@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jagakarsa Jakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Cisauk Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cisauk-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cisauk Tangerang \[Terdekat\]](/jual-bambu-steger-di-cisauk-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Jagakarsa Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Apabila di desa-desa bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil akan tetapi bambu kuning ini benar-benar kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pondok Jaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-jaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Jaya Depok \[Terdekat\]](/jual-bambu-steger-di-pondok-jaya-depok-terdekat/)
 
 ## Penjual Bambu Terdekat Di Jagakarsa Jakarta
 

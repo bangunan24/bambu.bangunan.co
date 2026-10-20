@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cikini Jakarta [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Kampung Tengah Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kampung-tengah-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kampung Tengah Jakarta \[Terdekat\]](/jual-bambu-steger-di-kampung-tengah-jakarta-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cikini Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah jenis bambu yg terbilang susah untuk didapatkan karena memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg amat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini adalah salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Bila di desa-desa bambu kuning ini lazim diterapkan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil tetapi bambu kuning ini sungguh-sungguh kuat jika diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia terutamanya di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Melawai Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-melawai-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Melawai Jakarta \[Terdekat\]](/jual-bambu-steger-di-melawai-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cikini Jakarta
 

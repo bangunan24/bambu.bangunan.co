@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jepara [Terdekat]](/images/jual-bambu-tali-20.png)
 
-**Lainnya:** [Jual Bambu Steger di Mulyaharja Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mulyaharja-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mulyaharja Bogor \[Terdekat\]](/jual-bambu-steger-di-mulyaharja-bogor-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Jepara
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yg warnanya hitam atau hijau kehitaman ada juga yang b
 
 Bambu kuning ini ialah tipe bambu yang terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yang sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat seandainya dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kalibaru Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kalibaru-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kalibaru Depok \[Terdekat\]](/jual-bambu-steger-di-kalibaru-depok-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Jepara
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kukusan Depok [Terdekat]](/images/jual-bambu-tali-09.png)
 
-**Lainnya:** [Jual Bambu Steger di Cibarusah Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cibarusah-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cibarusah Bekasi \[Terdekat\]](/jual-bambu-steger-di-cibarusah-bekasi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Kukusan Depok
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni jenis bambu yg terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski lingkarannya kecil namun bambu kuning ini amat kuat apabila diterapkan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia terutama di tempat-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukakarya Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukakarya-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukakarya Bekasi \[Terdekat\]](/jual-bambu-steger-di-sukakarya-bekasi-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kukusan Depok
 

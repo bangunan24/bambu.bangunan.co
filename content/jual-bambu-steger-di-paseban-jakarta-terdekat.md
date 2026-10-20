@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Paseban Jakarta [Terdekat]](/images/jual-bambu-tali-16.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukamulya Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukamulya-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukamulya Tangerang \[Terdekat\]](/jual-bambu-steger-di-sukamulya-tangerang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Paseban Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah tipe bambu yg terbilang susah untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tidak terlalu bisa diandalkan yakni tdk banyak dipakai oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yang bisa dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Apabila di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil tetapi bambu kuning ini betul-betul kuat jikalau digunakan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia terutamanya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciampea \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciampea-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciampea \[Terdekat\]](/jual-bambu-steger-di-ciampea-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Paseban Jakarta
 

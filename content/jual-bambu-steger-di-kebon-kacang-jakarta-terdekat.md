@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kebon Kacang Jakarta [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Bambu Apus Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-bambu-apus-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Bambu Apus Jakarta \[Terdekat\]](/jual-bambu-steger-di-bambu-apus-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kebon Kacang Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yaitu jenis bambu yg terbilang susah untuk didapatkan karena memang tidak tumbuh di semua tempat. Juga yang fungsinya tdk terlalu dapat dipercaya yakni tidak banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini adalah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu macam bambu yg dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat jikalau diaplikasikan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah beberapa macam bambu yg banyak ditemui di indonesia khususnya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ulujami Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ulujami-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ulujami Jakarta \[Terdekat\]](/jual-bambu-steger-di-ulujami-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Kebon Kacang Jakarta
 

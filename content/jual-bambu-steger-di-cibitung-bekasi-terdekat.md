@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cibitung Bekasi [Terdekat]](/images/jual-bambu-tali-24.png)
 
-**Lainnya:** [Jual Bambu Steger di Karangbahagia Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-karangbahagia-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Karangbahagia Bekasi \[Terdekat\]](/jual-bambu-steger-di-karangbahagia-bekasi-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cibitung Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yakni macam bambu yg terbilang susah untuk didapat karena memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa dipercaya yaitu tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yaitu diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yang benar-benar tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini ialah salah satu jenis bambu yang dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diterapkan sebagai tumbuhan hiasan malah ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Seandainya di desa-desa bambu kuning ini biasa diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil tetapi bambu kuning ini betul-betul tahan bila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-daerah yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Megamendung \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-megamendung-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Megamendung \[Terdekat\]](/jual-bambu-steger-di-megamendung-terdekat/)
 
 ## Supplier Bambu Terdekat Di Cibitung Bekasi
 

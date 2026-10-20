@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pejaten Jakarta [Terdekat]](/images/jual-bambu-tali-39.png)
 
-**Lainnya:** [Jual Bambu Steger di Gunungkaler Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-gunungkaler-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Gunungkaler Tangerang \[Terdekat\]](/jual-bambu-steger-di-gunungkaler-tangerang-terdekat/)
 
 ## Macam Bambu dan Fungsinya Yang Ada Di Pejaten Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah tipe bambu yang terbilang sulit untuk diperoleh sebab memang tidak tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tdk banyak diaplikasikan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg sungguh-sungguh tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari berbagai macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Kalau di desa-desa bambu kuning ini lazim digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini betul-betul kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah jenis bambu yg banyak ditemui di indonesia terutamanya di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pasar Rebo Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pasar-rebo-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pasar Rebo Jakarta \[Terdekat\]](/jual-bambu-steger-di-pasar-rebo-jakarta-terdekat/)
 
 ## Penjual Bambu Terdekat Di Pejaten Jakarta
 

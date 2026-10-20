@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kampung Rawa Jakarta [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Glodok Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-glodok-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Glodok Jakarta \[Terdekat\]](/jual-bambu-steger-di-glodok-jakarta-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Kampung Rawa Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini ialah macam bambu yg terbilang susah untuk didapatkan karena memang tidak tumbuh di segala daerah. Juga yg fungsinya tdk terlalu dapat diandalkan yakni tidak banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yg benar-benar tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beraneka macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Jika di desa-desa bambu kuning ini lazim dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yang melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil akan tetapi bambu kuning ini amat tahan apabila digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutama di daerah-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Pegangsaan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pegangsaan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pegangsaan Jakarta \[Terdekat\]](/jual-bambu-steger-di-pegangsaan-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Kampung Rawa Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Meruya Jakarta [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Blora \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-blora-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Blora \[Terdekat\]](/jual-bambu-steger-di-blora-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Meruya Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini adalah jenis bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak diaplikasikan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini ialah lingkarannya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Tapi memiliki ketebalan yg sungguh-sungguh tebal lazimnya tebalnya mencapai 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak dipakai sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini betul-betul tahan jikalau dipakai untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah tipe bambu yg banyak ditemui di indonesia khususnya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Tanjung Priok Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-tanjung-priok-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Tanjung Priok Jakarta \[Terdekat\]](/jual-bambu-steger-di-tanjung-priok-jakarta-terdekat/)
 
 ## Supplier Bambu Terdekat Di Meruya Jakarta
 

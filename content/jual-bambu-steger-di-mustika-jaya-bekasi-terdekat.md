@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Mustika Jaya Bekasi [Terdekat]](/images/jual-bambu-tali-40.png)
 
-**Lainnya:** [Jual Bambu Steger di Cimahi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cimahi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cimahi \[Terdekat\]](/jual-bambu-steger-di-cimahi-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Mustika Jaya Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah macam bambu yg terbilang sulit untuk didapatkan karena memang tidak tumbuh di segala tempat. Juga yang fungsinya tdk terlalu dapat diandalkan yakni tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yg sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yang bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari bermacam-macam jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Apabila di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil namun bambu kuning ini betul-betul kuat bila digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah tipe bambu yang banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ratu Jaya Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ratu-jaya-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ratu Jaya Depok \[Terdekat\]](/jual-bambu-steger-di-ratu-jaya-depok-terdekat/)
 
 ## Penjual Bambu Terdekat Di Mustika Jaya Bekasi
 

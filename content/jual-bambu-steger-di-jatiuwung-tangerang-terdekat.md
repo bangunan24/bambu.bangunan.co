@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Jatiuwung Tangerang [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Sukaraja \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukaraja-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukaraja \[Terdekat\]](/jual-bambu-steger-di-sukaraja-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Jatiuwung Tangerang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini adalah tipe bambu yang terbilang sulit untuk didapat sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diterapkan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini ialah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan memiliki ketebalan yang betul-betul tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu tipe bambu yang dapat dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini biasa diaplikasikan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meskipun diameternya kecil namun bambu kuning ini betul-betul kuat kalau diaplikasikan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yg banyak ditemui di indonesia khususnya di daerah-tempat yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cengkareng Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cengkareng-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cengkareng Jakarta \[Terdekat\]](/jual-bambu-steger-di-cengkareng-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Jatiuwung Tangerang
 

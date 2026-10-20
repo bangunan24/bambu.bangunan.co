@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bambu Apus Jakarta [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Magelang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-magelang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Magelang \[Terdekat\]](/jual-bambu-steger-di-magelang-terdekat/)
 
 ## Mengenal Lebih Dalam: Ragam Jenis dan Fungsi Bambu di Bambu Apus Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung menawarkan keunikan dengan warna batang yang khas, yaitu hitam atau
 
 Bambu kuning merupakan jenis bambu yang relatif langka karena tidak tumbuh di semua daerah dan memiliki kegunaan yang lebih terspesialisasi. Diameter bambu ini berkisar antara 5 hingga 8 cm, dengan tinggi batang 4 hingga 10 cm dan ketebalan hingga 2 cm. Bambu kuning dikenal karena kemampuannya dibudidayakan, dicangkok, dan dipercaya memiliki khasiat obat herbal untuk mengatasi berbagai penyakit seperti infeksi dan hepatitis. Di lingkungan modern, bambu kuning sering digunakan sebagai tanaman hias, bahkan ditanam dalam pot-pot kecil di rumah karena penampilannya yang unik dan artistik. Di daerah pedesaan, bambu kuning umumnya digunakan sebagai bahan pagar karena ketahanannya yang baik.
 
-**Lainnya:** [Jual Bambu Steger di Keagungan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-keagungan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Keagungan Jakarta \[Terdekat\]](/jual-bambu-steger-di-keagungan-jakarta-terdekat/)
 
 ## Solusi Pengadaan Bambu Andal di Bambu Apus Jakarta
 

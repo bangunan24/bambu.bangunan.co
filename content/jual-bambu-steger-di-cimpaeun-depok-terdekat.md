@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cimpaeun Depok [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Cikupa Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cikupa-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cikupa Tangerang \[Terdekat\]](/jual-bambu-steger-di-cikupa-tangerang-terdekat/)
 
 ## Tipe Bambu dan Kegunaannya Yang Ada Di Cimpaeun Depok
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yg b
 
 Bambu kuning ini yaitu macam bambu yang terbilang susah untuk diperoleh karena memang tidak tumbuh di segala tempat. Juga yg fungsinya tdk terlalu dapat dipercaya yakni tdk banyak diaplikasikan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini adalah diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tdk terlalu tinggi 4 sd 10m. Namun memiliki ketebalan yang amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yakni salah satu jenis bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diterapkan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Apabila di desa-desa bambu kuning ini biasa digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil tetapi bambu kuning ini amat tahan jikalau dipakai untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sawangan Depok \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sawangan-depok-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sawangan Depok \[Terdekat\]](/jual-bambu-steger-di-sawangan-depok-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Cimpaeun Depok
 

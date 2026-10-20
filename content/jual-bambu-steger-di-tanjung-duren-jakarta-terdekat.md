@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Tanjung Duren Jakarta [Terdekat]](/images/jual-bambu-tali-31.png)
 
-**Lainnya:** [Jual Bambu Steger di Pondok Aren Tangerang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-pondok-aren-tangerang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Pondok Aren Tangerang \[Terdekat\]](/jual-bambu-steger-di-pondok-aren-tangerang-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Tanjung Duren Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yg terbilang sulit untuk didapatkan sebab memang tdk tumbuh di semua tempat. Juga yang fungsinya tdk terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yg amat tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu macam bambu yang dapat dibudidayakan dan salah satu jenis bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak digunakan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang wujudnya unik juga warnanya yg artistik. Seandainya di perkampungan bambu kuning ini umum dipakai sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil namun bambu kuning ini benar-benar tahan jikalau digunakan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di tempat-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Ciwaringin Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciwaringin-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciwaringin Bogor \[Terdekat\]](/jual-bambu-steger-di-ciwaringin-bogor-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Tanjung Duren Jakarta
 

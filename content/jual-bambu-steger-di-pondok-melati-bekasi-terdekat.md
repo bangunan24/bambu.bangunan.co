@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Pondok Melati Bekasi [Terdekat]](/images/jual-bambu-tali-23.png)
 
-**Lainnya:** [Jual Bambu Steger di Purwasari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-purwasari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Purwasari Karawang \[Terdekat\]](/jual-bambu-steger-di-purwasari-karawang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Pondok Melati Bekasi
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini yaitu tipe bambu yang terbilang susah untuk didapat karena memang tdk tumbuh di seluruh daerah. Juga yang fungsinya tidak terlalu bisa dipercaya yakni tidak banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg sungguh-sungguh tebal biasanya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang dapat dibudidayakan dan salah satu macam bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah minimalis, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang bentuknya unik juga warnanya yg artistik. Jika di perkampungan bambu kuning ini umum digunakan sebagai pagar sebab memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meski ukuran bulatnya kecil akan tetapi bambu kuning ini benar-benar kuat apabila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutama di daerah-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Cipatat \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cipatat-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cipatat \[Terdekat\]](/jual-bambu-steger-di-cipatat-terdekat/)
 
 ## Supplier Bambu Terdekat Di Pondok Melati Bekasi
 

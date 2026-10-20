@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciracas Jakarta [Terdekat]](/images/jual-bambu-tali-17.png)
 
-**Lainnya:** [Jual Bambu Steger di Lumajang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-lumajang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Lumajang \[Terdekat\]](/jual-bambu-steger-di-lumajang-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ciracas Jakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yang 
 
 Bambu kuning ini ialah jenis bambu yang terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala tempat. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni diameternya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Namun mempunyai ketebalan yg betul-betul tebal umumnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu jenis bambu yg dapat dibudidayakan dan salah satu tipe bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beraneka jenis penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak dipakai sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang tampilannya unik juga warnanya yang artistik. Sekiranya di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yg melebihi bambu-bambu lainnya. Walaupun lingkarannya kecil namun bambu kuning ini benar-benar kuat jikalau diterapkan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa macam bambu yg banyak dijumpai di indonesia khususnya di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kebagusan Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kebagusan-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kebagusan Jakarta \[Terdekat\]](/jual-bambu-steger-di-kebagusan-jakarta-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Ciracas Jakarta
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciwidey [Terdekat]](/images/jual-bambu-tali-14.png)
 
-**Lainnya:** [Jual Bambu Steger di Cililin \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-cililin-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Cililin \[Terdekat\]](/jual-bambu-steger-di-cililin-terdekat/)
 
 ## Jenis Bambu dan Fungsinya Yang Ada Di Ciwidey
 
@@ -37,7 +37,7 @@ Bambu wulung adalah bambu yang warnanya hitam atau hijau kehitaman ada juga yang
 
 Bambu kuning ini yaitu macam bambu yg terbilang susah untuk didapatkan sebab memang tdk tumbuh di segala daerah. Juga yang fungsinya tidak terlalu bisa diandalkan yakni tdk banyak diterapkan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yaitu lingkarannya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tapi mempunyai ketebalan yang sangat tebal biasanya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg bisa dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam macam penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan minimalis, banyak diaplikasikan sebagai tumbuhan hiasan bahkan ada yang sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yg artistik. Jikalau di perkampungan bambu kuning ini umum digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini betul-betul kuat bila diaplikasikan untuk pagar, akan bertahan lama dan tidak mudah untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di tempat-daerah yg banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Rawalumbu Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-rawalumbu-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Rawalumbu Bekasi \[Terdekat\]](/jual-bambu-steger-di-rawalumbu-bekasi-terdekat/)
 
 ## Supplier Bambu Terdekat Di Ciwidey
 

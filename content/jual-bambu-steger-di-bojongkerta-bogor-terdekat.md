@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Bojongkerta Bogor [Terdekat]](/images/jual-bambu-tali-04.png)
 
-**Lainnya:** [Jual Bambu Steger di Mustika Jaya Bekasi \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mustika-jaya-bekasi-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mustika Jaya Bekasi \[Terdekat\]](/jual-bambu-steger-di-mustika-jaya-bekasi-terdekat/)
 
 ## Jenis Bambu dan Kegunaannya Yang Ada Di Bojongkerta Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung ialah bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini ialah tipe bambu yg terbilang susah untuk didapatkan karena memang tdk tumbuh di segala daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini yakni diameternya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yang betul-betul tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini yaitu salah satu macam bambu yg dapat dibudidayakan dan salah satu jenis bambu yang dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berkaitan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang wujudnya unik juga warnanya yang artistik. Seandainya di perkampungan bambu kuning ini biasa dipakai sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Meskipun lingkarannya kecil akan tetapi bambu kuning ini benar-benar kuat kalau digunakan untuk pagar, akan bertahan lama dan tidak gampang untuk di dihancurkan. Itulah beberapa jenis bambu yg banyak dijumpai di indonesia terutama di daerah-tempat yang banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Jonggol \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-jonggol-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Jonggol \[Terdekat\]](/jual-bambu-steger-di-jonggol-terdekat/)
 
 ## Penjual Bambu Terpercaya Di Bojongkerta Bogor
 

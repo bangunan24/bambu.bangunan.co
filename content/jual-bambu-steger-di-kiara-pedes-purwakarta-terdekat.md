@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Kiara Pedes Purwakarta [Terdekat]](/images/jual-bambu-tali-21.png)
 
-**Lainnya:** [Jual Bambu Steger di Kapuk Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kapuk-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kapuk Jakarta \[Terdekat\]](/jual-bambu-steger-di-kapuk-jakarta-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Kiara Pedes Purwakarta
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yg warnanya hitam atau hijau kehitaman ada juga yg berw
 
 Bambu kuning ini yaitu tipe bambu yang terbilang sulit untuk diperoleh sebab memang tdk tumbuh di seluruh daerah. Juga yg fungsinya tidak terlalu bisa dipercaya yaitu tdk banyak digunakan oleh masyarakat umum. Ciri-ciri dari bambu kuning ini ialah ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tidak terlalu tinggi 4 sd 10m. Melainkan mempunyai ketebalan yg sangat tebal umumnya tebalnya mencapai 2 cm. Bambu kuning ini adalah salah satu macam bambu yang bisa dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari berbagai tipe penyakit. Seperti infeksi, hepatitis dan penyakit yang lainnya yang terkait dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak diterapkan sebagai tumbuhan hiasan bahkan ada yg sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yg artistik. Bila di perkampungan bambu kuning ini lazim digunakan sebagai pagar karena memang bambu kuning ini memiliki ketahanan yang melebihi bambu-bambu lainnya. Meskipun ukuran bulatnya kecil namun bambu kuning ini sangat kuat apabila diterapkan untuk pagar, akan bertahan lama dan tdk mudah untuk di dihancurkan. Itulah jenis bambu yg banyak dijumpai di indonesia khususnya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Mekarwangi Bogor \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-mekarwangi-bogor-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Mekarwangi Bogor \[Terdekat\]](/jual-bambu-steger-di-mekarwangi-bogor-terdekat/)
 
 ## Supplier Bambu Terdekat Di Kiara Pedes Purwakarta
 

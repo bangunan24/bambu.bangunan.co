@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Cilendek Bogor [Terdekat]](/images/jual-bambu-tali-10.png)
 
-**Lainnya:** [Jual Bambu Steger di Klari Karawang \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-klari-karawang-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Klari Karawang \[Terdekat\]](/jual-bambu-steger-di-klari-karawang-terdekat/)
 
 ## Tipe Bambu dan Fungsinya Yang Ada Di Cilendek Bogor
 
@@ -37,7 +37,7 @@ Bambu wulung yaitu bambu yang warnanya hitam atau hijau kehitaman ada juga yg be
 
 Bambu kuning ini yakni macam bambu yang terbilang sulit untuk didapat karena memang tidak tumbuh di seluruh daerah. Juga yg fungsinya tdk terlalu bisa diandalkan yakni tidak banyak digunakan oleh masyarakat luas. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yg kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yg tidak terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini ialah salah satu tipe bambu yg dapat dibudidayakan dan salah satu macam bambu yg bisa dicangkok dan di percaya bambu kuning ini bisa sebagai obat herbal dari beragam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yang berkaitan dengan organ dalam. Bambu kuning ini juga di rumah-rumah modern, banyak digunakan sebagai tumbuhan hiasan malah ada yang sengaja menanam bambu kuning mini di pot pot rumah sebab memang tampilannya unik juga warnanya yang artistik. Kalau di perkampungan bambu kuning ini lazim diaplikasikan sebagai pagar karena memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun ukuran bulatnya kecil akan tetapi bambu kuning ini amat tahan bila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah macam bambu yang banyak ditemui di indonesia terutamanya di daerah-daerah yang banyak terkandung air, Misalkan di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Kepanjen \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-kepanjen-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Kepanjen \[Terdekat\]](/jual-bambu-steger-di-kepanjen-terdekat/)
 
 ## Penjual Bambu Terdekat Di Cilendek Bogor
 

@@ -15,7 +15,7 @@ description: >-
 
 ![Jual Bambu Steger di Ciampel Karawang [Terdekat]](/images/jual-bambu-tali-19.png)
 
-**Lainnya:** [Jual Bambu Steger di Ciamis \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-ciamis-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Ciamis \[Terdekat\]](/jual-bambu-steger-di-ciamis-terdekat/)
 
 ## Macam Bambu dan Kegunaannya Yang Ada Di Ciampel Karawang
 
@@ -37,7 +37,7 @@ Bambu wulung yakni bambu yg warnanya hitam atau hijau kehitaman ada juga yang be
 
 Bambu kuning ini yaitu jenis bambu yg terbilang sulit untuk diperoleh sebab memang tidak tumbuh di semua tempat. Juga yang fungsinya tidak terlalu dapat dipercaya yaitu tdk banyak digunakan oleh masyarakat biasa. Ciri-ciri dari bambu kuning ini yakni ukuran bulatnya yang kecil kurang lebih 5 sd 8cm. Permukaan nya beruas-ruas dan tinggi batangnya yang tdk terlalu tinggi 4 sd 10m. Tetapi memiliki ketebalan yg betul-betul tebal lazimnya tebalnya hingga 2 cm. Bambu kuning ini yaitu salah satu jenis bambu yang bisa dibudidayakan dan salah satu macam bambu yg dapat dicangkok dan di percaya bambu kuning ini dapat sebagai obat herbal dari bermacam-macam tipe penyakit. Seperti infeksi, hepatitis dan penyakit yg lainnya yg berhubungan dengan organ dalam. Bambu kuning ini juga di perumahan modern, banyak diaplikasikan sebagai tumbuhan hiasan malahan ada yg sengaja menanam bambu kuning mini di pot pot rumah karena memang bentuknya unik juga warnanya yang artistik. Jikalau di perkampungan bambu kuning ini umum dipakai sebagai pagar sebab memang bambu kuning ini mempunyai ketahanan yg melebihi bambu-bambu lainnya. Walaupun diameternya kecil akan tetapi bambu kuning ini benar-benar kuat apabila digunakan untuk pagar, akan bertahan lama dan tdk gampang untuk di dihancurkan. Itulah beberapa tipe bambu yang banyak dijumpai di indonesia terutama di tempat-tempat yg banyak terkandung air, Contohnya di lereng gunung, pinggir kali, pinggir sawah, dan juga di pinggir-pinggir selokan.
 
-**Lainnya:** [Jual Bambu Steger di Sukapura Jakarta \[Terdekat\]](https://bambu.bangunan.co/jual-bambu-steger-di-sukapura-jakarta-terdekat/)
+**Lainnya:** [Jual Bambu Steger di Sukapura Jakarta \[Terdekat\]](/jual-bambu-steger-di-sukapura-jakarta-terdekat/)
 
 ## Supplier Bambu Terpercaya Di Ciampel Karawang
 
